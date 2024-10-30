@@ -32,7 +32,14 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
   ## <img src="https://images.viblo.asia/a22cc9ed-e446-4eae-ad55-1ddf8afbaa54.gif" width="30" /> CONTRIBUTIONS
   [<img align="right" width="50%" src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xaydeptrai&show_icons=true&theme=synthwave&layout=compact">](https://metrics.lecoq.io/ouuan?template=classic)
   
+  ####
+
+  ####
+  
+  ####
+  
   ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
+    💬 Ask me anything: (xaytrong2002@gmail.com)
   ## Quote of the day:
   *"${quote}"* <br>
   — ${author}
