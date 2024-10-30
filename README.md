@@ -12,9 +12,6 @@
 - Knowledge of <code>Node.js</code>
 - Skill in <code>Unit Testing</code>
 
-<img src="https://images.viblo.asia/1f5d99d1-8cb7-4d82-a627-d6934d20d94b.png" width="100" />
-
-## <img src="https://images.viblo.asia/a22cc9ed-e446-4eae-ad55-1ddf8afbaa54.gif" width="30" /> CONTRIBUTIONS
 <a href="https://metrics.lecoq.io/ouuan?template=classic"><img align="right" width="50%" src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xaydeptrai&show_icons=true&theme=synthwave&layout=compact"></a>
 
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
