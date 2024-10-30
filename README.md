@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can't climb the ladder of success with your hands in your pockets.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;It's not how much money you make, it's how much money you keep.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
