@@ -6,11 +6,9 @@
 
 - Understands <code>OOP</code> well
 - <code>HTML</code>, <code>CSS</code>, <code>Bootstrap</code>: proficient
-- Strong skills in <code>JQuery</code>, <code>MySQL</code>, <code>PHP</code>
-- Excellent with the <code>Laravel</code> framework for web design
+- Strong skills in <code>JavaScript</code>, <code>C#</code>, <code>Java</code>
 - Proficient with <code>Git</code>
-- Learning the <code>Agile</code> mindset
-- Knowledge of <code>Vue.js</code> and <code>Vuex</code>
+- Knowledge of <code>Node.js</code> and <code>Asp.net</code>
 - Skill in <code>Unit Testing</code>
 - Experience in manual and <code>automated deployment</code>
 - Familiar with <code>AWS</code>
@@ -19,6 +17,5 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 ## Quote of the day:
 <em>&quot;In the midst of chaos, there is also opportunity.&quot;</em> <br>
-— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
