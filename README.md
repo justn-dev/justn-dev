@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;There are people who have money and people who are rich.&quot;</em> <br>
+— Coco Chanel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
