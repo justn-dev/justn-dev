@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Lost Time is never found again.&quot;</em> <br>
-— Benjamin Franklin
+<em>&quot;If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
