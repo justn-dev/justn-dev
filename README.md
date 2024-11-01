@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is ignorance that causes most mistakes.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;The outer conditions of a person's life will always be found to reflect their inner beliefs.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
