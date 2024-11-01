@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only thing new in the world is the history you do not know.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;Find something you love and do it better than everyone else.&quot;</em> <br>
+— Gurbaksh Chahal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
