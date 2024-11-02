@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What we know is a drop, what we don't know is an ocean. &quot;</em> <br>
-— Isaac Newton
+<em>&quot;The final mystery is oneself.&quot;</em> <br>
+— Oscar Wilde
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
