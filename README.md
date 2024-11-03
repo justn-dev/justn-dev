@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only person you should try to be better than is the person you were yesterday.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Knowing is not enough, we must apply. Willing is not enough, we must do.  &quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
