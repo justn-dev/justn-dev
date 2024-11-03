@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you put water into a cup, it becomes the cup.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;All our knowledge has its origins in our perceptions.&quot;</em> <br>
+— Leonardo da Vinci
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
