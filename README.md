@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Absorb what is useful, discard what is useless and add what is specifically your own.  &quot;</em> <br>
-— Bruce Lee
+<em>&quot;The degree of responsibility you take for your life determines how much change you can create in it.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
