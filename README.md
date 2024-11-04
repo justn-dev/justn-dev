@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If I have seen further than others, it is by standing upon the shoulders of giants.&quot;</em> <br>
-— Isaac Newton
+<em>&quot;Life and death are of supreme importance. Time swiftly passes by and opportunity is lost.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
