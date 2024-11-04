@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The Truth is realized in an instant; the Act is practiced step by step.&quot;</em> <br>
-— Seungsahn
+<em>&quot;It is useless to meet revenge with revenge; it will heal nothing.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
