@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. &quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
