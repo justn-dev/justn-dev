@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only place where success comes before work is in the dictionary.&quot;</em> <br>
-— Vidal Sassoon
+<em>&quot;We meet ourselves time and again in a thousand disguises on the path of life.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
