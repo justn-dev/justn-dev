@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you give, the more comes back to you.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Action is the foundational key to all success.&quot;</em> <br>
+— Pablo Picasso
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
