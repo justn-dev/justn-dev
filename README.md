@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Many of life's failures are people who did not realize how close they were to success when they gave up.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;It takes half your life before you discover life is a do-it-yourself project.&quot;</em> <br>
+— Napoleon Hill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
