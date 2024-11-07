@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Not everything that weighs you down is yours to carry.&quot;</em> <br>
-— Unknown
+<em>&quot;Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work.&quot;</em> <br>
+— John Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
