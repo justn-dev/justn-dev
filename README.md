@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What have you done today to make someone else happy?&quot;</em> <br>
-— Deepam Chaterjee
+<em>&quot;Confidence is consistency of thinking about what is possible and how to make it possible.&quot;</em> <br>
+— John Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
