@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;At the end of the day, let there be no excuses, no explanations, no regrets.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. &quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
