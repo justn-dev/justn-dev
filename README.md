@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Circumstances rule men; men do not rule circumstances. &quot;</em> <br>
+— Herodotus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
