@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success in any endeavor depends on the degree to which it is an expression of your true self. &quot;</em> <br>
-— Ralph Marston
+<em>&quot;If you're not failing every now and again, it's a sign you're not doing anything very innovative.&quot;</em> <br>
+— Woody Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
