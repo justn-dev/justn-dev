@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach.&quot;</em> <br>
-— Benjamin Mays
+<em>&quot;A man that flies from his fear may find that he has only taken a short cut to meet it.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
