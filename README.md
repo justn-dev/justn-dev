@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Not how long, but how well you have lived is the main thing.&quot;</em> <br>
-— Seneca
+<em>&quot;The trouble with most of us is that we'd rather be ruined by praise than saved by criticism.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
