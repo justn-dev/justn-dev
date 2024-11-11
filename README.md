@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;You have to make time, even for something as universal as staring at the stars.&quot;</em> <br>
+— W.P. Kinsella
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
