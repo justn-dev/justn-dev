@@ -1,5 +1,5 @@
-### Good afternoon 👋
-<h2>I'm N, a Backend Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
+### Good evening ☕
+<h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
 <a href="https://metrics.lecoq.io/ouuan?template=classic"><img align="right" width="50%" src="https://github-readme-stats.vercel.app/api?username=Xaydeptrai&show_icons=true&theme=synthwave"></a>
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The health of nations is more important than the wealth of nations.&quot;</em> <br>
-— Will Rogers
+<em>&quot;Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
