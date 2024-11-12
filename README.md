@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;If you truly expect something to be difficult, it will be.&quot;</em> <br>
+— Peter A. Cohen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
