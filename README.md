@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.&quot;</em> <br>
-— Bob Marley
+<em>&quot;If you're afraid to die, you're afraid to live. You can't have one without the other.&quot;</em> <br>
+— Rita Mae Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
