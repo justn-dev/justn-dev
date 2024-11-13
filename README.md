@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't try to steer the river.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Attitude is a little thing that makes a big difference.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
