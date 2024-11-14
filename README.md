@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know.&quot;</em> <br>
-— Colin Powell
+<em>&quot;If you want to keep your memories, you first have to live them.&quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
