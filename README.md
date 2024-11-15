@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love.&quot;</em> <br>
-— Dr. Seuss
+<em>&quot;Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
