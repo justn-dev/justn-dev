@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is easy to discover what another has discovered before.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;Happiness is the spiritual experience of living every minute with love, grace and gratitude.&quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
