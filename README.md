@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is from the inside out. When you shift on the inside, life shifts on the outside.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;A memory is a beautiful thing, it's almost a desire that you miss.&quot;</em> <br>
+— Gustave Flaubert
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
