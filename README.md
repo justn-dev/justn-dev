@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It doesn't matter where you are coming from. All that matters is where you are going. &quot;</em> <br>
-— Brian Tracy
+<em>&quot;If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
