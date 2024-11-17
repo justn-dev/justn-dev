@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Weeds are flowers too, once you get to know them.&quot;</em> <br>
-— A.A. Milne
+<em>&quot;No one ever said life was fair. Just Eventful.&quot;</em> <br>
+— Carol Burnett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
