@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Like it or not, this moment is all we really have to work with.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
