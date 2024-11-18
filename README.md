@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not use life to give life to death. Do not use death to bring death to life.&quot;</em> <br>
-— Zhuangzi
+<em>&quot;People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
