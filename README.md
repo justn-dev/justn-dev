@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.  &quot;</em> <br>
-— Jack Kerouac
+<em>&quot;You're always free to change your mind and choose a different future, or a different past.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
