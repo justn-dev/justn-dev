@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Change your thoughts and you change your world.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
