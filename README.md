@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If the only prayer you ever say in your entire life is thank you, it will be enough.&quot;</em> <br>
-— Meister Eckhart
+<em>&quot;The dream is free, but the hustle is sold separately.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
