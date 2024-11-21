@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing is really work unless you would rather be doing something else. &quot;</em> <br>
-— James Matthew Barrie
+<em>&quot;Prefer to be defeated in the presence of the wise than to excel among fools.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
