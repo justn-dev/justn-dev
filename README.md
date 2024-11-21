@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you can see it in your mind, you can hold it in your mind.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;It is safer to search in the maze than to remain in a cheeseless situation.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
