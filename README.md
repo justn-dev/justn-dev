@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more something threatens your identity, the more you will avoid it.&quot;</em> <br>
-— Mark Manson
+<em>&quot;In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
