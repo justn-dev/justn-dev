@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Still your waters.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;To lose your temper is only useful once a year.&quot;</em> <br>
+— Colin R. Davis
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
