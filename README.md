@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never do to others what you would not like them to do to you. &quot;</em> <br>
-— Confucius
+<em>&quot;Don't wait for extraordinary opportunities. Seize common occasions and make them great.&quot;</em> <br>
+— Orison Swett Marden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
