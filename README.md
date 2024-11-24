@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The difference between treason and patriotism is only a matter of dates.&quot;</em> <br>
-— Alexandre Dumas
+<em>&quot;Never do to others what you would not like them to do to you. &quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
