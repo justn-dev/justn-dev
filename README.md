@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No problem can be solved from the same level of consciousness that created it.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Experience is simply the name we give our mistakes. &quot;</em> <br>
+— Oscar Wilde
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
