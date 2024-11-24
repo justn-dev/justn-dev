@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There are more people who wish to be loved than there are who are willing to love. &quot;</em> <br>
-— Nicolas Chamfort
+<em>&quot;The difference between treason and patriotism is only a matter of dates.&quot;</em> <br>
+— Alexandre Dumas
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
