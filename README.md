@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A clever person turns great troubles into little ones, and little ones into none at all. &quot;</em> <br>
-— Chinese Proverb
+<em>&quot;In matters of style, swim with the current; in matters of principle, stand like a rock.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
