@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;How many times do you have to get hit over the head until you figure out who's hitting you?&quot;</em> <br>
+— Harry S. Truman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
