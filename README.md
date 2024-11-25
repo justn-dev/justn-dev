@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window.&quot;</em> <br>
-— Peter Drucker
+<em>&quot;Life isn't about finding yourself. Life is about creating yourself.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
