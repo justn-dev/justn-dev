@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you are content to be simply yourself and don't compare or compete, everybody will respect you. &quot;</em> <br>
-— Lao Tzu
+<em>&quot;The shoe that fits one person pinches another; there is no recipe for living that suits all cases.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
