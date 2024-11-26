@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You may forget with whom you laughed, but you will never forget with whom you wept.  &quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;Success is liking yourself, liking what you do, and liking how you do it.&quot;</em> <br>
+— Maya Angelou
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
