@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is ignorance that causes most mistakes.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
