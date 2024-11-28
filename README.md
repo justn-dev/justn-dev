@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Awaken. Take heed, do not squander your life.&quot;</em> <br>
-— Dogen
+<em>&quot;A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties.&quot;</em> <br>
+— Harry S. Truman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
