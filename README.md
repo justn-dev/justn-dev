@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Human happiness and moral duty are inseparably connected. &quot;</em> <br>
-— George Washington
+<em>&quot;Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
