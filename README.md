@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Man is made by his belief. As he believes, so he is.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;Human happiness and moral duty are inseparably connected. &quot;</em> <br>
+— George Washington
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
