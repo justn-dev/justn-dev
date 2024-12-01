@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you aren't sure which way to do something, do it both ways and see which works better.&quot;</em> <br>
-— John Carmack
+<em>&quot;The health of nations is more important than the wealth of nations.&quot;</em> <br>
+— Will Rogers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
