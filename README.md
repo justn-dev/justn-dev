@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The biggest challenge after success is shutting up about it.&quot;</em> <br>
-— Criss Jami
+<em>&quot;By the practice of meditation, you will find that you are carrying within your heart a portable paradise.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
