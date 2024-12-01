@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In spite of everything, I shall rise again.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;If you aren't sure which way to do something, do it both ways and see which works better.&quot;</em> <br>
+— John Carmack
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
