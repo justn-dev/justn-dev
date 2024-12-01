@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Good things aren't supposed to just fall into your lap.&quot;</em> <br>
-— Audrey Hepburn
+<em>&quot;Man suffers only because he takes seriously what the gods made for fun.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
