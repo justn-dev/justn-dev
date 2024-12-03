@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Ponder and deliberate before you make a move.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;You will have bad times, but they will always wake you up to the stuff you weren't paying attention to.&quot;</em> <br>
+— Robin Williams
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
