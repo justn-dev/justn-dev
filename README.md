@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world.&quot;</em> <br>
-— Gabor Mate
+<em>&quot;So we beat on, boats against the current, borne back ceaselessly into the past.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
