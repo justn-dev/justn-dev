@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be. &quot;</em> <br>
-— Miguel de Cervantes
+<em>&quot;We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world.&quot;</em> <br>
+— Gabor Mate
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
