@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One of the oldest human needs is having someone to wonder where you are when you don't come home at night. &quot;</em> <br>
-— Margaret Mead
+<em>&quot;Sometimes you will never know the value of something, until it becomes a memory.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
