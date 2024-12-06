@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When something is important enough, you do it even if the odds are not in your favor.&quot;</em> <br>
-— Elon Musk
+<em>&quot;Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
