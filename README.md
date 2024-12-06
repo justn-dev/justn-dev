@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Believe you can and you will be halfway there.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;Have a heart that never hardens, and a temper that never tires, and a touch that never hurts.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
