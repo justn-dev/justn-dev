@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A path is made by walking on it.&quot;</em> <br>
-— Zhuangzi
+<em>&quot;Be not glad at the misfortune of another, though he may be your enemy. &quot;</em> <br>
+— George Washington
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
