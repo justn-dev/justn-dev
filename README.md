@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Take interest and even delight in doing the small things well.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Anyone who has ever made anything of importance was disciplined.&quot;</em> <br>
+— Andrew Hendrixson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
