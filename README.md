@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man should do his job so well that the living, the dead, and the unborn could do it no better.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;Don't live the same year 75 times and call it a life.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
