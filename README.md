@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;Friendship is like money, easier made than kept.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
