@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you.&quot;</em> <br>
-— Simon Sinek
+<em>&quot;Hope is not a strategy. Luck is not a factor. Fear is not an option.&quot;</em> <br>
+— James Cameron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
