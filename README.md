@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you change the way you look at things, the things you look at change. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Nothing is more creative...nor destructive...than a brilliant mind with a purpose.&quot;</em> <br>
+— Dan Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
