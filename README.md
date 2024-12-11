@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
