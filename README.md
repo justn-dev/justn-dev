@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do one thing every day that scares you.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Never say never, because limits, like fears, are often just an illusion.&quot;</em> <br>
+— Michael Jordan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
