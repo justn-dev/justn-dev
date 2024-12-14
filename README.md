@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A creative man is motivated by the desire to achieve, not by the desire to beat others.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;You are always your own best guru, your own best teacher, the answers are always inside you.&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
