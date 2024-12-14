@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else.&quot;</em> <br>
-— Simon Sinek
+<em>&quot;Treat everyone with politeness and kindness, not because they are nice, but because you are.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
