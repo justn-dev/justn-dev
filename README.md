@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We know nothing of tomorrow, our business is to be good and happy today.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;Being in a good frame of mind helps keep one in the picture of health.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
