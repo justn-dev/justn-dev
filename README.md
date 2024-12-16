@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Fortunate are those who take the first steps.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
