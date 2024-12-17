@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The beautiful journey of today can only begin when we learn to let go of yesterday.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Your business is not to 'get somewhere' - it is to be here.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
