@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You must learn to let go. Release the stress. You were never in control anyway.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes.&quot;</em> <br>
+— A.A. Milne
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
