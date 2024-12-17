@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The quality, not the longevity, of one's life is what is important.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;You must learn to let go. Release the stress. You were never in control anyway.&quot;</em> <br>
+— Steve Maraboli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
