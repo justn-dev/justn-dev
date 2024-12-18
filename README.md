@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What are we doing here, that is the question.&quot;</em> <br>
-— Samuel Beckett
+<em>&quot;It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts.&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
