@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When things go wrong, don't go with them.&quot;</em> <br>
-— Elvis Presley
+<em>&quot;Today I begin a new life. I will greet this day with love in my heart.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
