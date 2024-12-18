@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Today I begin a new life. I will greet this day with love in my heart.&quot;</em> <br>
-— Og Mandino
+<em>&quot;Even if you persuade me, you won't persuade me.&quot;</em> <br>
+— Aristophanes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
