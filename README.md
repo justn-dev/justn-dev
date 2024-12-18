@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Mastering others is strength, mastering yourself is true power.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;We never know the love of a parent till we become parents ourselves.&quot;</em> <br>
+— Henry Ward Beecher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
