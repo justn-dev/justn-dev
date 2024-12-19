@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The future will be shaped by those willing to commit their minds and their bodies to the task.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;Genius, in truth, means little more than the faculty of perceiving in an unhabitual way.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
