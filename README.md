@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In the midst of chaos, there is also opportunity.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Don't think money does everything or you are going to end up doing everything for money.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
