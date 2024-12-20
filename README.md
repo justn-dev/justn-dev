@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Opportunities don't often come along. So, when they do, you have to grab them.&quot;</em> <br>
-— Audrey Hepburn
+<em>&quot;Why live an ordinary life, when you can live an extraordinary one.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
