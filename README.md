@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No man is happy who does not think himself so.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Don't try to steer the river.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
