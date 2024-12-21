@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wherever you are, it's the place you need to be.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Life is 10% what happens to you and 90% how you react to it. &quot;</em> <br>
+— Charles Swindoll
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
