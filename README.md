@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;This is such a short and precious life that it's really important that you don't spend it being unhappy.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;When at last you are come to the ocean of happiness, do not go back thirsty.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
