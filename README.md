@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Enthusiasm is a vital element toward the individual success of every man or woman.&quot;</em> <br>
-— Conrad Hilton
+<em>&quot;It is the mark of an educated mind to be able to entertain a thought without accepting it.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
