@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness.&quot;</em> <br>
-— Unknown
+<em>&quot;Animals don't hate, and we're supposed to be better than them.&quot;</em> <br>
+— Elvis Presley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
