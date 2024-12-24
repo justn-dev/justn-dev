@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Animals don't hate, and we're supposed to be better than them.&quot;</em> <br>
-— Elvis Presley
+<em>&quot;I am thankful to all those who said no. It's because of them, I did it myself.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
