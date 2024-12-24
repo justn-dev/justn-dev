@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Friendship is one of the most tangible things in a world which offers fewer and fewer supports.&quot;</em> <br>
-— Kenneth Branagh
+<em>&quot;Your next step is simple. You are the first domino.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
