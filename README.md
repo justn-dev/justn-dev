@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;What's the point in being smart enough to read, if everything you read makes you dumb?&quot;</em> <br>
+— C. Sean McGee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
