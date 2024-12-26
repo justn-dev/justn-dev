@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;You have to give up some of the old so that you can make room for the new.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
