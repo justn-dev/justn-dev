@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Cultivate the merry heart, develop the happiness habit, and life will become a continual feast.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Receive without pride, let go without attachment.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
