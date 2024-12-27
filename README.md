@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Just throw away all thoughts of imaginary things, and stand firm in that which you are.&quot;</em> <br>
-— Kabir
+<em>&quot;The impossible can always be broken down into possibilities.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
