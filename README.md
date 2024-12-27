@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is like playing the violin in public and learning the instrument as one goes on.&quot;</em> <br>
-— Samuel Butler
+<em>&quot;Be polite to all, but intimate with few.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
