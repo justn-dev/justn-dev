@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your heart is full of fertile seeds, waiting to sprout.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Find your Light; They can't love you if they can't see you.&quot;</em> <br>
+— Bette Midler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
