@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Find your Light; They can't love you if they can't see you.&quot;</em> <br>
-— Bette Midler
+<em>&quot;Work for something because it is good, not just because it stands a chance to succeed.&quot;</em> <br>
+— Vaclav Havel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
