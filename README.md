@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Against the assault of laughter nothing can stand.&quot;</em> <br>
-— Mark Twain
+<em>&quot;The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings.&quot;</em> <br>
+— Henry Ward Beecher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
