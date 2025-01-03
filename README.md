@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your next step is simple. You are the first domino.&quot;</em> <br>
-— Gary Keller
+<em>&quot;You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
