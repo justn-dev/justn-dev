@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Simplicity is a difficult thing to achieve.  &quot;</em> <br>
-— Charlie Chaplin
+<em>&quot;The best way out is always through.&quot;</em> <br>
+— Robert Frost
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
