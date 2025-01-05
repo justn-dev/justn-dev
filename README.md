@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can live a whole life time never being awake.&quot;</em> <br>
-— Dan Millman
+<em>&quot;To be prepared is half the victory. &quot;</em> <br>
+— Miguel de Cervantes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
