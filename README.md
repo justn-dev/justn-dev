@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Mind is the creator of everything. You should therefore guide it to create only good.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Life is the art of drawing sufficient conclusions from insufficient premises.&quot;</em> <br>
+— Samuel Butler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
