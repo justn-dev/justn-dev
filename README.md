@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Seek not the good in external things;seek it in yourselves.&quot;</em> <br>
-— Epictetus
+<em>&quot;Never buy a thing you do not want, because it is cheap, it will be dear to you.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
