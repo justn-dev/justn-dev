@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never buy a thing you do not want, because it is cheap, it will be dear to you.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;Challenge yourself to find the good and beautiful thing inside of everyone.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
