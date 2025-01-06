@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference.&quot;</em> <br>
-— Robert Frost
+<em>&quot;Victims recite problems, leaders provide solutions.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
