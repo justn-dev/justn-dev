@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The best teacher is experience and not through someone's distorted point of view.&quot;</em> <br>
-— Jack Kerouac
+<em>&quot;No valid plans for the future can be made by those who have no capacity for living now.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
