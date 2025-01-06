@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;All power is from within and therefore under our control.&quot;</em> <br>
-— Robert Collier
+<em>&quot;The divine is not something high above us. It is in heaven, it is in earth, it is inside us.&quot;</em> <br>
+— Morihei Ueshiba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
