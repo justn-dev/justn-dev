@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Out of suffering have emerged the strongest souls; the most massive characters are seared with scars.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;The only defense against the world is a thorough knowledge of it.&quot;</em> <br>
+— John Locke
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
