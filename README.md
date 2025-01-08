@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can start changing our world for the better daily, no matter how small the action.&quot;</em> <br>
-— Nelson Mandela
+<em>&quot;We will act consistently with our view of who we truly are, whether that view is accurate or not.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
