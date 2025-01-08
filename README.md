@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Genius is one percent inspiration and ninety-nine percent perspiration.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;Be patient and calm; no one can catch fish in anger.&quot;</em> <br>
+— Herbert Hoover
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
