@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you are motivated by Love, The more Fearless &amp; Free your action will be.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
