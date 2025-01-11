@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Do what you feel in your heart to be right - for you'll be criticized anyway.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
