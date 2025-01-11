@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A dead thing can go with the stream, but only a living thing can go against it.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;In the practice of tolerance, one's enemy is the best teacher.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
