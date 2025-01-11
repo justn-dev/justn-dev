@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;From a certain point onward there is no longer any turning back. That is the point that must be reached.&quot;</em> <br>
-— Franz Kafka
+<em>&quot;Realize deeply that the present moment is all you ever have. &quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
