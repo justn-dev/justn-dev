@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There exists only the present instant; a Now which always and without end is itself new.&quot;</em> <br>
-— Meister Eckhart
+<em>&quot;You can put lipstick on a pig. It's still a pig.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
