@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life has the name of life, but in reality it is death.&quot;</em> <br>
-— Heraclitus
+<em>&quot;No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
