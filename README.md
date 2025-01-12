@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;Things may come to those who wait, but only the things left by those who hustle.&quot;</em> <br>
+— Abraham Lincoln
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
