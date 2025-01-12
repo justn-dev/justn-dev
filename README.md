@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Getting lost along your path is a part of finding the path you are meant to be on.&quot;</em> <br>
-— Robin Sharma
+<em>&quot;Do every act of your life as if it were your last.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
