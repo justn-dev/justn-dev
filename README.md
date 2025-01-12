@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge.&quot;</em> <br>
-— Robert Greene
+<em>&quot;You'll get more from being a peacemaker than a warrior.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
