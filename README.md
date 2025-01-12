@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you extend kindness to yourself, the more it will become your automatic response to others.&quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Success does not consist in never making mistakes but in never making the same one a second time.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
