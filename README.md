@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only defense against the world is a thorough knowledge of it.&quot;</em> <br>
-— John Locke
+<em>&quot;Failure means you've now learned another valuable lesson that pushes you one step closer to success.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
