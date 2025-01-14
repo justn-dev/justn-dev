@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If everyone is moving forward together, then success takes care of itself.&quot;</em> <br>
-— Henry Ford
+<em>&quot;If you run you stand a chance of losing, but if you don't run you've already lost.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
