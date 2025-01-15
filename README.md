@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It all depends on what you choose to believe.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Trust, like the soul, never returns once it is gone.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
