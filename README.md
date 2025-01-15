@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Old age is like everything else. To make a success of it, you've got to start young.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Just get out and do it. You will be very, very glad that you did.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
