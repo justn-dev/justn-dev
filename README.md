@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Mistakes are always forgivable, if one has the courage to admit them. &quot;</em> <br>
-— Bruce Lee
+<em>&quot;The thing about smart people is that they seem like crazy people to dumb people.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
