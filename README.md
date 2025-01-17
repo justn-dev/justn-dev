@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;There is a wisdom of the head, and there is a wisdom of the heart.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
