@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In the beginner's mind there are many possibilities, but in the expert's mind there are few.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;Our joy does not have to be based on our circumstances.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
