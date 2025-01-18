@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We take care of the future best by taking care of the present now.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Meditate. It won't be fun but it will surface what you need to deal with.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
