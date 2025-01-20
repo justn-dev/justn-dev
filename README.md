@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Speak when you are angry - and you'll make the best speech you'll ever regret.&quot;</em> <br>
-— Laurence J. Peter
+<em>&quot;I must also have a dark side if I am to be whole.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
