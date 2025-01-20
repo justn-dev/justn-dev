@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I have not failed. I've just found 10,000 ways that won't work.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;If your happiness depends on what somebody else does, I guess you do have a problem.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
