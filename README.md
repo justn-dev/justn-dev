@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you see yourself as prosperous, you will be.&quot;</em> <br>
-— Robert Collier
+<em>&quot;Great loves too must be endured.&quot;</em> <br>
+— Coco Chanel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
