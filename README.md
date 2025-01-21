@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;One of the oldest human needs is having someone to wonder where you are when you don't come home at night. &quot;</em> <br>
+— Margaret Mead
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
