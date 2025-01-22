@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Act the way you want to be and soon you'll be the way you act.&quot;</em> <br>
-— Les Brown
+<em>&quot;Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
