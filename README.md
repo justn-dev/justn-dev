@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man that flies from his fear may find that he has only taken a short cut to meet it.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
