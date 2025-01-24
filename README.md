@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In order for you to be the BEST you can be for others, first you must be BEST for yourself.&quot;</em> <br>
-— Jeffrey Gitomer
+<em>&quot;There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world.&quot;</em> <br>
+— Henry Ward Beecher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
