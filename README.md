@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When something comes from within, when it is a part of you, you have no choice but to live it, to express it.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;A man that flies from his fear may find that he has only taken a short cut to meet it.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
