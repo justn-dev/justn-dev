@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Till it has loved, no man or woman can become itself.&quot;</em> <br>
-— Emily Dickinson
+<em>&quot;I was angered, for I had no shoes. Then I met a man who had no feet. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
