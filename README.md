@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You live by what you thrill to, and there's the end of it.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;The weak can never forgive. Forgiveness is the attribute of the strong.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
