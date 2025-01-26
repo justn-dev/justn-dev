@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To a mind that is still, the entire universe surrenders.&quot;</em> <br>
-— Zhuangzi
+<em>&quot;When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
