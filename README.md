@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Thinking is the hardest work there is. That is why so few people engage in it.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;That some achieve great success is proof to all that others can achieve it as well.&quot;</em> <br>
+— Abraham Lincoln
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
