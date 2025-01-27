@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Among the things you can give and still keep are your word, a smile, and a grateful heart.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Poetry is written with tears, fiction with blood, and history with invisible ink.&quot;</em> <br>
+— Carlos Ruiz Zafon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
