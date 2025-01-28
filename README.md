@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Courage is not having the strength to go on; it is going on when you don't have the strength.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Your time is limited, so don't waste it living someone elses. life.&quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
