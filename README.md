@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A fool sees himself as another, but a wise man sees others as himself.&quot;</em> <br>
-— Dogen
+<em>&quot;Nothing will work unless you do.&quot;</em> <br>
+— Maya Angelou
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
