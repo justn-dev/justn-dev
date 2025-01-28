@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your time is limited, so don't waste it living someone elses. life.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;If you do not conquer self, you will be conquered by self.&quot;</em> <br>
+— Napoleon Hill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
