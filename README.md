@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If ever you feel like an animal among men, be a lion.&quot;</em> <br>
-— Criss Jami
+<em>&quot;To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
