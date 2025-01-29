@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Learning is a weightless treasure you can always carry easily.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;If there's a definition of freedom, I think it's this: living life on your terms.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
