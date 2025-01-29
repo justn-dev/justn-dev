@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If there's a definition of freedom, I think it's this: living life on your terms.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;Friendship is one of the most tangible things in a world which offers fewer and fewer supports.&quot;</em> <br>
+— Kenneth Branagh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
