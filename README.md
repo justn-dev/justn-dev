@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;For your life to be great, your faith must be bigger than your fear.&quot;</em> <br>
-— Robin Sharma
+<em>&quot;Words, once they are printed, have a life of their own.&quot;</em> <br>
+— Carol Burnett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
