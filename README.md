@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;The only thing new in the world is the history you do not know.&quot;</em> <br>
+— Harry S. Truman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
