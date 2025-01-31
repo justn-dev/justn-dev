@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is like stepping onto a boat which is about to sail out to sea and sink.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;You can't make someone feel good about themselves until you feel good about yourself.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
