@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In youth we run into difficulties. In old age difficulties run into us. &quot;</em> <br>
-— Beverly Sills
+<em>&quot;To accomplish big things, I am convinced you must first dream big dreams.&quot;</em> <br>
+— Conrad Hilton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
