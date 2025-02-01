@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;For all evils there are two remedies - time and silence.&quot;</em> <br>
-— Alexandre Dumas
+<em>&quot;Cease striving. Then there will be transformation.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
