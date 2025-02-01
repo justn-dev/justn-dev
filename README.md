@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;Leaders spend 5% of their time on the problem &amp; 95% of their time on the solution. Get over it &amp; crush it!&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
