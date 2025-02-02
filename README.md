@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Create each day anew.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
