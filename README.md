@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Everybody by your side ain't on your side.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
