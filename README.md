@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In all chaos there is a cosmos, in all disorder a secret order.&quot;</em> <br>
-— Carl Jung
+<em>&quot;The quality of your life is the quality of your relationships.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
