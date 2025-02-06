@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations.&quot;</em> <br>
-— Alfred Adler
+<em>&quot;If you run you stand a chance of losing, but if you don't run you've already lost.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
