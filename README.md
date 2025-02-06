@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Today is the oldest you've ever been, and the youngest you'll ever be again.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;You are not stuck where you are unless you decide to be.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
