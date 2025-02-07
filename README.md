@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving.&quot;</em> <br>
-— Yanni
+<em>&quot;Be not afraid of growing slowly, be afraid only of standing still. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
