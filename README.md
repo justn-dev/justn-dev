@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The question is not what you look at, but what you see.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;We run to win, not just to be in the race.  &quot;</em> <br>
+— Vince Lombardi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
