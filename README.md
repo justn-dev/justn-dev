@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Love is the expression of one's values.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;Good, better, best. Never let it rest. 'Til your good is better and your better is best. &quot;</em> <br>
+— St. Jerome
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
