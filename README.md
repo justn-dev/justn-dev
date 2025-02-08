@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You must welcome change as the rule but not as your ruler. &quot;</em> <br>
-— Denis Waitley
+<em>&quot;The heart wants what it wants. There's no logic. &quot;</em> <br>
+— Woody Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
