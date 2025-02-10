@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Live, travel, adventure, bless, and don't be sorry.  &quot;</em> <br>
-— Jack Kerouac
+<em>&quot;I do not exist to impress the world. I exist to live my life in a way that will make me happy.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
