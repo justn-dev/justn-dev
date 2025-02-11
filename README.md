@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To wish you were someone else is to waste the person you are.&quot;</em> <br>
-— Unknown
+<em>&quot;Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
