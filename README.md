@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Most people spend more time and energy going around problems than in trying to solve them. &quot;</em> <br>
-— Henry Ford
+<em>&quot;Successful people tend to become more successful because they are always thinking about their successes.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
