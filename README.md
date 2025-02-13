@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
