@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;People don't care how much you know until they know how much you care.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
