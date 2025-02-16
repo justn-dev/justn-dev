@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Waste not fresh tears over old griefs.&quot;</em> <br>
-— Euripides
+<em>&quot;The road to success and the road to failure are almost exactly the same.&quot;</em> <br>
+— Colin R. Davis
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
