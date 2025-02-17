@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Waste no more time arguing about what a good man should be. Be one.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;No man ever steps in the same river twice, for it's not the same river and he's not the same man.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
