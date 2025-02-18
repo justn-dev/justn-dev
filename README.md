@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The impossible can always be broken down into possibilities.&quot;</em> <br>
-— Unknown
+<em>&quot;Only those who dare to fail greatly can ever achieve greatly.&quot;</em> <br>
+— Robert F. Kennedy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
