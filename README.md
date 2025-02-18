@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The mind can calculate, but the spirit yearns, and the heart wants what the heart wants.&quot;</em> <br>
-— Stephen King
+<em>&quot;Fear, uncertainty, and discomfort are your compasses toward growth.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
