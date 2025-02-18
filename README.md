@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your happiness is what truly matters most. Do what you have to do in order to be happy.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;You become stronger with every problem you face and every obstacle you overcome.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
