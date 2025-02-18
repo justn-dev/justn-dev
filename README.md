@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Only those who dare to fail greatly can ever achieve greatly.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;Dreams are for dreamers. Goals are for achievers.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
