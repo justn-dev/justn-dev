@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;I'm an optimist by choice not by stupidity.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
