@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Happiness is pretty simple: someone to love, something to do, something to look forward to.&quot;</em> <br>
-— Rita Mae Brown
+<em>&quot;Patience is bitter, but its fruit is sweet.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
