@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never waste a minute of your precious life thinking about people you don't like.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;Every act of creation is first an act of destruction.&quot;</em> <br>
+— Pablo Picasso
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
