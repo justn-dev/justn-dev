@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours. &quot;</em> <br>
-— Orison Swett Marden
+<em>&quot;It's OK to have your eggs in one basket as long as you control what happens to that basket.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
