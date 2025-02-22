@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whatever you are, be a good one.&quot;</em> <br>
-— Abraham Lincoln
+<em>&quot;Focused, hard work is the real key to success.&quot;</em> <br>
+— John Carmack
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
