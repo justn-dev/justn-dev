@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Begin at once to live, and count each separate day as a separate life.  &quot;</em> <br>
-— Seneca
+<em>&quot;The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
