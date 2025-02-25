@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You are not one person, but three: The one you think you are; The one others think you are; The one you really are.&quot;</em> <br>
-— Sathya Sai Baba
+<em>&quot;As soon as you truly commit to making something happen, the 'how' will reveal itself.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
