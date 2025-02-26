@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Take care of your body. It's the only place you have to live.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;We are always complaining that our days are few, and acting as though there would be no end of them.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
