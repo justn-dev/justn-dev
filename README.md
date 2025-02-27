@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control.&quot;</em> <br>
-— Epictetus
+<em>&quot;Optimism is the one quality more associated with success and happiness than any other.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
