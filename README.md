@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Thinking is the hardest work there is. That is why so few people engage in it.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Death is not sad; the sad thing is that most people don't really live at all.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
