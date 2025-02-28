@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Make failure your teacher, not your undertaker.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;We are all faced with a series of great opportunities brilliantly disguised as impossible situations. &quot;</em> <br>
+— Charles Swindoll
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
