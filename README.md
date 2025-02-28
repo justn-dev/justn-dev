@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Anyone who wants to achieve a dream must stay strong, focused and steady.&quot;</em> <br>
-— Estee Lauder
+<em>&quot;Once you learn to quit, it becomes a habit.&quot;</em> <br>
+— Vince Lombardi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
