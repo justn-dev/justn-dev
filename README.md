@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Ask no questions, and you'll be told no lies.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;The foolish reject what they see, not what they think; the wise reject what they think, not what they see.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
