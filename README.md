@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you are content to be simply yourself and don't compare or compete, everybody will respect you. &quot;</em> <br>
-— Lao Tzu
+<em>&quot;Keep your face always toward the sunshine -  shadows will fall behind you.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
