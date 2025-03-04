@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Keep your face always toward the sunshine -  shadows will fall behind you.&quot;</em> <br>
-— Walt Whitman
+<em>&quot;The salvation of the world lies in the human heart.&quot;</em> <br>
+— Vaclav Havel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
