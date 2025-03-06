@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Listen to what you know instead of what you fear.&quot;</em> <br>
-— Richard Bach
+<em>&quot;Love and compassion are necessities, not luxuries. Without them, humanity cannot survive.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
