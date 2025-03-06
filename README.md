@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Love and compassion are necessities, not luxuries. Without them, humanity cannot survive.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;A clear conscience never fears midnight knocking.&quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
