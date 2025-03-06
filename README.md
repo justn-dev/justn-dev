@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Where the willingness is great, the difficulties cannot be great.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
