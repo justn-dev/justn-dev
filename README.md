@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never to suffer would never to have been blessed.&quot;</em> <br>
-— Edgar Allan Poe
+<em>&quot;You need a plan to build a house. To build a life, it is even more important to have a plan or goal.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
