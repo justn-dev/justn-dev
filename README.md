@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You are the only problem you will ever have and you are the only solution.&quot;</em> <br>
-— Bob Proctor
+<em>&quot;In peace, sons bury their fathers. In war, fathers bury their sons. &quot;</em> <br>
+— Herodotus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
