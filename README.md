@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you chase two rabbits, you catch none.&quot;</em> <br>
-— Confucius
+<em>&quot;If there is a book that you want to read, but it hasn't been written yet, then you must write it.&quot;</em> <br>
+— Toni Morrison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
