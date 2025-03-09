@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What people need and what they want may be very different.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Patience expands your options. If you insist on immediate gratification, your choices are severely limited.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
