@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The first rule of business; treat others like they want to treat you.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;Believe in your infinite potential. Your only limitations are those you set upon yourself.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
