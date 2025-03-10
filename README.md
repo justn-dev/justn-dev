@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Follow your instincts. That is where true wisdom manifests itself.&quot;</em> <br>
-— Oprah Winfrey
+<em>&quot;Although the world is full of suffering, it is also full of the overcoming of it.&quot;</em> <br>
+— Helen Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
