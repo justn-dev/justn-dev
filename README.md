@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
