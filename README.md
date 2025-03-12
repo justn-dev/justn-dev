@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more we value things, the less we value ourselves.  &quot;</em> <br>
-— Bruce Lee
+<em>&quot;Trusting our intuition often saves us from disaster. &quot;</em> <br>
+— Anne Wilson Schaef
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
