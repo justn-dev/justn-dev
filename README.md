@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There exists only the present instant; a Now which always and without end is itself new.&quot;</em> <br>
-— Meister Eckhart
+<em>&quot;The only real security that a man can have in this world is a reserve of knowledge, experience and ability. &quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
