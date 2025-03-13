@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;My instinct is always to seek out challenges as opposed to avoiding them.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;How much pain they have cost us, the evils which have never happened.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
