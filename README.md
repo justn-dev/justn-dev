@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Take time like the river that never grows stale. Keep going and steady. No hurry, no rush.&quot;</em> <br>
-— Rumi
+<em>&quot;If your happiness depends on what somebody else does, I guess you do have a problem.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
