@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;Do not use life to give life to death. Do not use death to bring death to life.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
