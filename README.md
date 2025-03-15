@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is a question and how we live it is our answer.&quot;</em> <br>
-— Gary Keller
+<em>&quot;Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
