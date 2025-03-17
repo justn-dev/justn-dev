@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The trouble with most of us is that we'd rather be ruined by praise than saved by criticism.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;The man who asks a question is a fool for a minute, the man who does not ask is a fool for life.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
