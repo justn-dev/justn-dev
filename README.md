@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You must find the place inside yourself where nothing is impossible.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Discipline is the mark of intelligent living.&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
