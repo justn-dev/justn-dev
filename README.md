@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream.&quot;</em> <br>
-— Unknown
+<em>&quot;You must find the place inside yourself where nothing is impossible.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
