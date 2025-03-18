@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is useless to meet revenge with revenge; it will heal nothing.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;The score never interested me, only the game.&quot;</em> <br>
+— Mae West
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
