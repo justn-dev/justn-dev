@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Nothing has any power over me other than that which I give it through my conscious thoughts.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
