@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Where the willingness is great, the difficulties cannot be great.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
