@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is not uncommon for people to spend their whole life waiting to start living.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Silence is the great teacher and to learn its lessons you must pay attention to it.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
