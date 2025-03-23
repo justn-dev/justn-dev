@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The ego wants to go fast. The soul needs to go slow.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Successful people ask better questions, and as a result, they get better answers.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
