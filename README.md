@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Forever is composed of now's.&quot;</em> <br>
+— Emily Dickinson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
