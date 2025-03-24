@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A strong man overcomes an obstacle, a wise man goes the whole way.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;The season of failure is the best time for sowing the seeds of success. &quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
