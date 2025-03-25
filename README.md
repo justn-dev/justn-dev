@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;Find your Light; They can't love you if they can't see you.&quot;</em> <br>
+— Bette Midler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
