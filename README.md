@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your spirit is the true shield.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Those who bring sunshine into the lives of others cannot keep it from themselves.&quot;</em> <br>
+— James Matthew Barrie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
