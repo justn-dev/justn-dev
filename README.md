@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Those who bring sunshine into the lives of others cannot keep it from themselves.&quot;</em> <br>
-— James Matthew Barrie
+<em>&quot;The eye with which I see God is the same eye with which God sees me.&quot;</em> <br>
+— Meister Eckhart
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
