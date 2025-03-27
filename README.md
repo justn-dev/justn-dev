@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;It doesn't matter where you are, you are nowhere compared to where you can go.&quot;</em> <br>
+— Bob Proctor
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
