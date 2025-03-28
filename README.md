@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know.&quot;</em> <br>
-— Colin Powell
+<em>&quot;Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
