@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing you do is going to matter that much in the long run. Don't take yourself so seriously.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;A dream you dream alone is only a dream. A dream you dream together is reality.&quot;</em> <br>
+— Yoko Ono
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
