@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A dream you dream alone is only a dream. A dream you dream together is reality.&quot;</em> <br>
-— Yoko Ono
+<em>&quot;The friend is the man who knows all about you, and still likes you.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
