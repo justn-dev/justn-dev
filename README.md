@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Courage Is a Love Affair with the Unknown&quot;</em> <br>
-— Osho
+<em>&quot;If you're afraid to die, you're afraid to live. You can't have one without the other.&quot;</em> <br>
+— Rita Mae Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
