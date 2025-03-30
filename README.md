@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Many roads lead to the path, but basically there are only two: reason and practice. &quot;</em> <br>
-— Bodhidharma
+<em>&quot;Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
