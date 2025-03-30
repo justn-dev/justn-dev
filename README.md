@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To the world you may be one person; but to one person you may be the world.&quot;</em> <br>
-— Dr. Seuss
+<em>&quot;Question everything. Learn something. Answer nothing.&quot;</em> <br>
+— Euripides
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
