@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question.&quot;</em> <br>
+— John Tukey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
