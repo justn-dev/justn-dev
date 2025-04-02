@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do Something. If it works, do more of it. If it doesn't, do something else.&quot;</em> <br>
-— Franklin D. Roosevelt
+<em>&quot;To get angry is like to revenge yourself for the guilt of others.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
