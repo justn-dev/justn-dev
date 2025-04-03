@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;All animals except man know that the principal business of life is to enjoy it.&quot;</em> <br>
-— Samuel Butler
+<em>&quot;Walking with a friend in the dark is better than walking alone in the light.&quot;</em> <br>
+— Helen Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
