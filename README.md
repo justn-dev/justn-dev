@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The question is not what you look at, but what you see.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;It is the greatest of all mistakes to do nothing because you can only do little; do something.&quot;</em> <br>
+— Sydney Smith
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
