@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't be afraid to stand for what you believe in, even if that means standing alone.&quot;</em> <br>
-— Unknown
+<em>&quot;Believe that life is worth living and your belief will help create the fact.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
