@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Presents are made for the pleasure of who gives them, not the merits of who receives them.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;A random act of kindness, no matter how small, can make a tremendous impact on someone else's life.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
