@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard.&quot;</em> <br>
-— Colin Powell
+<em>&quot;It is better to change an opinion than to persist in a wrong one.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
