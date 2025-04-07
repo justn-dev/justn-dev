@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;Make each day a new horizon.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
