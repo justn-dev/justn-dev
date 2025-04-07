@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is your attitude, not your aptitude, that determines your altitude.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
