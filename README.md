@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Just as true humor is laughter at oneself, true humanity is knowledge of oneself.&quot;</em> <br>
-— Alan Watts
+<em>&quot;We may not be able to stop evil in the world, but how we treat one another is entirely up to us.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
