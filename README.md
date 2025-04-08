@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen.&quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Every man gotta right to decide his own destiny.&quot;</em> <br>
+— Bob Marley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
