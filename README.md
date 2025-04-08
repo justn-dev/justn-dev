@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Smell the cheese often so you know when it is getting old.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Be kind, for everyone you meet is fighting a harder battle.&quot;</em> <br>
+— Plato
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
