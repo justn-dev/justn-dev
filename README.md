@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;If you want something new, you have to stop doing something old.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
