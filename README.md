@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity.&quot;</em> <br>
-— Og Mandino
+<em>&quot;Smell the cheese often so you know when it is getting old.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
