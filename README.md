@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One must be poor to know the luxury of giving.&quot;</em> <br>
-— George Eliot
+<em>&quot;Judge your success by what you had to give up in order to get it.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
