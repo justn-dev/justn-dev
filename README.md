@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Before you can see the Light, you have to deal with the darkness.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Worry is a waste of emotional reserve.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
