@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One is never afraid of the unknown; one is afraid of the known coming to an end.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;The more reasons you have for achieving your goal, the more determined you will become.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
