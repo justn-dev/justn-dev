@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.&quot;</em> <br>
-— Socrates
+<em>&quot;You change the world by being yourself.&quot;</em> <br>
+— Yoko Ono
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
