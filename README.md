@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What kills the creative force is not age or lack of talent, but our own spirit, our own attitude.&quot;</em> <br>
-— Robert Greene
+<em>&quot;Happiness is not a goal...it's a by-product of a life well lived.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
