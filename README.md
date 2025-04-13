@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The art of being happy lies in the power of extracting happiness from common things.&quot;</em> <br>
+— Henry Ward Beecher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
