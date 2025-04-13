@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Great things are not done by impulse, but by a series of small things brought together.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Numbing the pain for a while will only make it worse when you finally feel it.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
