@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Our deeds determine us, as much as we determine our deeds.&quot;</em> <br>
-— George Eliot
+<em>&quot;To seek greatness is the only righteous vengeance.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
