@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;One of the first signs of the beginning of understanding is the wish to die. &quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
