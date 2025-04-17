@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found.&quot;</em> <br>
-— Alexander Pope
+<em>&quot;Don't Let Yesterday Take Up Too Much Of Today.&quot;</em> <br>
+— Will Rogers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
