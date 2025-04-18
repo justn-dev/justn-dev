@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every great change is preceded by chaos.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;No need to hurry. No need to sparkle. No need to be anybody but oneself.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
