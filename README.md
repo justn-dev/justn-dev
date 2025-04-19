@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Closing your eyes and listening to silence is self-care.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;For your life to be great, your faith must be bigger than your fear.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
