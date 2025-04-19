@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Those who seek the easy way do not seek the true way.&quot;</em> <br>
-— Dogen
+<em>&quot;Open your mind before your mouth.&quot;</em> <br>
+— Aristophanes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
