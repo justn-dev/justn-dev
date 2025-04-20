@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It doesn't matter where you are coming from. All that matters is where you are going. &quot;</em> <br>
-— Brian Tracy
+<em>&quot;When you view failure as feedback, you get more done. When you view failure as a finality, you get nothing done.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
