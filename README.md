@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people.&quot;</em> <br>
-— Jack Butcher
+<em>&quot;Fear is your worst enemy. Risk is your best friend.&quot;</em> <br>
+— Gurbaksh Chahal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
