@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't cry because it's over. Smile because it happened.&quot;</em> <br>
-— Dr. Seuss
+<em>&quot;Emancipate yourself from mental slavery, none but ourselves can free our mind.&quot;</em> <br>
+— Bob Marley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
