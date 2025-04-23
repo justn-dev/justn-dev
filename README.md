@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is a poor teacher.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
