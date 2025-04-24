@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;At the end of the day, let there be no excuses, no explanations, no regrets.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;The guest will judge better of a feast than the cook.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
