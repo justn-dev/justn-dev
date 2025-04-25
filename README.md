@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;In the end, it's not the years in your life that count. It's the life in your years.&quot;</em> <br>
+— Abraham Lincoln
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
