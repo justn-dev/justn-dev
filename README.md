@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Time heals what reason cannot.  &quot;</em> <br>
-— Seneca
+<em>&quot;Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
