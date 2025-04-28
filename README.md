@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is getting what you want. Happiness is wanting what you get.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;Success is achieved and maintained by those who try and keep trying. &quot;</em> <br>
+— W. Clement Stone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
