@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I have lived with several Zen masters -- all of them cats.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Knowledge isn't power until it is applied.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
