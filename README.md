@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Judgments prevent us from seeing the good that lies beyond appearances.  &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Supreme excellence consists of breaking the enemy's resistance without fighting.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
