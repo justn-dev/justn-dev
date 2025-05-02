@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;The quicker you let go of old cheese, the sooner you find new cheese.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
