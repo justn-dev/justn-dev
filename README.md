@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To be happy we need something to solve. Happiness is therefore a form of action.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Cleverness is not wisdom.&quot;</em> <br>
+— Euripides
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
