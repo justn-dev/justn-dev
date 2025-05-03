@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To improve is to change, so to be perfect is to change often.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;It is better to fail in originality than to succeed in imitation.&quot;</em> <br>
+— Herman Melville
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
