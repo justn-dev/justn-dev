@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is never final; failure is never fatal.&quot;</em> <br>
-— Conrad Hilton
+<em>&quot;I don't ever give up. I'd have to be dead or completely incapacitated.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
