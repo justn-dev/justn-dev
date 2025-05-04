@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Inspire yourself to be great. Being good isn't good enough.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;A man with outward courage dares to die: a man with inner courage dares to live.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
