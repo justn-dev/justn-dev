@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The person who is his own master cannot tolerate another boss. &quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Only he who has no use for the empire is fit to be entrusted with it.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
