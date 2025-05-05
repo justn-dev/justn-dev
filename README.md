@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;Fool me once, shame on you; fool me twice, shame on me. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
