@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
