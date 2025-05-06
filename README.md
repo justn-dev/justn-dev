@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;We know nothing of tomorrow, our business is to be good and happy today.&quot;</em> <br>
+— Sydney Smith
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
