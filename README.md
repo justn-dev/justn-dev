@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The best time to plant a tree was 20 years ago. The second best time is now.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;Associate with people who are likely to improve you.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
