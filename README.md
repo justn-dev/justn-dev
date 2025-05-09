@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death.&quot;</em> <br>
-— Socrates
+<em>&quot;Change is not a four letter word...but often your reaction to it is!&quot;</em> <br>
+— Jeffrey Gitomer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
