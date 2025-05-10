@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is impossible for a man to learn what he thinks he already knows.&quot;</em> <br>
-— Epictetus
+<em>&quot;It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
