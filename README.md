@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You may think I'm small, but I have a universe inside my mind.&quot;</em> <br>
-— Yoko Ono
+<em>&quot;The opposite of courage in our society is not cowardice... it is conformity.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
