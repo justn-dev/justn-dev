@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Some people dream of success, while others wake up and work hard at it.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Happiness must be grown in one's own garden.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
