@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You have the ability, now apply yourself.&quot;</em> <br>
-— Benjamin Mays
+<em>&quot;Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
