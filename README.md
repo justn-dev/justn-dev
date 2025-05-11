@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When the time is gone, you can never get it back.&quot;</em> <br>
-— Stephen King
+<em>&quot;Changing minds is harder than finding people who already agree.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
