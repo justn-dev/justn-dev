@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't concern yourself with the money. Be of service. Build. Work. Dream. Create.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;There is no sadder sight than a young pessimist.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
