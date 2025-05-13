@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People should pursue what they're passionate about. That will make them happier than pretty much anything else.&quot;</em> <br>
-— Elon Musk
+<em>&quot;What worries you, masters you.&quot;</em> <br>
+— John Locke
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
