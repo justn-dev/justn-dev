@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Stay away from people who makes you feel like you are wasting their time.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
