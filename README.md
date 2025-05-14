@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Reality is the leading cause of stress among those in touch with it.&quot;</em> <br>
+— Lily Tomlin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
