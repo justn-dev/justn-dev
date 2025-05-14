@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We live only now. Everything else is either passed or is unknown.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;Progress lies not in enhancing what is, but in advancing toward what will be.&quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
