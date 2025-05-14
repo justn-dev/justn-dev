@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with.&quot;</em> <br>
-— Woody Allen
+<em>&quot;I am thankful to all those who said no. It's because of them, I did it myself.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
