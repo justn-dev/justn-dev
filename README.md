@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Generosity is giving more than you can, and pride is taking less than you need.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;Do you have the patience to wait until your mud settles and the water is clear?&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
