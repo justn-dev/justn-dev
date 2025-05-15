@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is and will ever remain an equation incapable of solution, but it contains certain known factors. &quot;</em> <br>
-— Nikola Tesla
+<em>&quot;A person who does not read is no better than one cannot read.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
