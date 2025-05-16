@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One always begins to forgive a place as soon as it's left behind.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;Wisdom is doing now what you are going to be happy with later on.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
