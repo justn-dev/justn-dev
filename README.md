@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is hard to fail, but it is worse never to have tried to succeed.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Be brave to stand for what you believe in even if you stand alone.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
