@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Becoming a great leader doesn't mean being perfect. it means living with your imperfections.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
