@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction.&quot;</em> <br>
-— G.I. Gurdjieff
+<em>&quot;Our greatest fears lie in anticipation.&quot;</em> <br>
+— Honore de Balzac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
