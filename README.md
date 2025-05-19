@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything is possible. The impossible just takes longer.&quot;</em> <br>
-— Dan Brown
+<em>&quot;You can only lose something that you have, but you cannot lose something that you are.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
