@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You give but little when you give of your possessions. It is when you give of yourself that you truly give.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
