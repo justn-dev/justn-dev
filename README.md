@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot.&quot;</em> <br>
-— Wayne Gretzky
+<em>&quot;Every experience is a lesson. Every loss is a gain.&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
