@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life should be touched, not strangled.  &quot;</em> <br>
-— Ray Bradbury
+<em>&quot;What the mind can conceive and believe, and the heart desire, you can achieve.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
