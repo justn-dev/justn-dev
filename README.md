@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;The art of being happy lies in the power of extracting happiness from common things.&quot;</em> <br>
+— Henry Ward Beecher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
