@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is our experiences that mold us into who we are...during times of adversity our true character will show.&quot;</em> <br>
-— Unknown
+<em>&quot;Life is about accepting the challenges along the way, choosing to keep moving forward, and savoring the journey.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
