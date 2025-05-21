@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The greatest step towards a life of simplicity is to learn to let go.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
