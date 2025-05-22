@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you're afraid - don't do it, - if you're doing it - don't be afraid! &quot;</em> <br>
-— Genghis Khan
+<em>&quot;Do not regret the past. Look to the future.&quot;</em> <br>
+— Soyen Shaku
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
