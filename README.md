@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be happy now, without reason - or you never will be at all.&quot;</em> <br>
-— Dan Millman
+<em>&quot;If you're afraid - don't do it, - if you're doing it - don't be afraid! &quot;</em> <br>
+— Genghis Khan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
