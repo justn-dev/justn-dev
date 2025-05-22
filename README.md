@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We meet ourselves time and again in a thousand disguises on the path of life.&quot;</em> <br>
-— Carl Jung
+<em>&quot;We should not look back unless it is to derive useful lessons from past errors.&quot;</em> <br>
+— George Washington
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
