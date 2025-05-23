@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't ever save anything for a special occasion. Being alive is the special occasion.&quot;</em> <br>
-— Mary Engelbreit
+<em>&quot;A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself.&quot;</em> <br>
+— Alexander Graham Bell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
