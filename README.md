@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Never be bored, and you will never be boring.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
