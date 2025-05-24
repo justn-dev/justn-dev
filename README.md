@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everybody by your side ain't on your side.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;It is often safer to be in chains than to be free. &quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
