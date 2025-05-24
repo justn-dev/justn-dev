@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You are not only responsible for what you say, but also for what you do not say. &quot;</em> <br>
-— Martin Luther
+<em>&quot;It ain't where you start in life, it's where you end up, and what you did along the way.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
