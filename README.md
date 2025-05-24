@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You don't need anybody to tell you who you are or what you are. You are what you are!&quot;</em> <br>
-— John Lennon
+<em>&quot;The truth is simple. If it was complicated, everyone would understand it.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
