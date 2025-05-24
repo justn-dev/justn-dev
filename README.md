@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never was anything great achieved without danger.&quot;</em> <br>
-— Niccolo Machiavelli
+<em>&quot;Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.&quot;</em> <br>
+— Helen Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
