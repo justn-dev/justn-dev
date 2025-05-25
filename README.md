@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Today will never happen again. Don't waste it with a false start or no start at all.&quot;</em> <br>
-— Og Mandino
+<em>&quot;Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. &quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
