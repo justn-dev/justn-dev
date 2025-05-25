@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I don't pretend to know everything; I just only speak on matters I know I'll win.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Just try to be the best you can be; never cease trying to be the best you can be. That's in your power.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
