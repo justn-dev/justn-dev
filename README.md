@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is much more successfully looked at from a single window.&quot;</em> <br>
-— F. Scott Fitzgerald
+<em>&quot;To some degree, you control your life by controlling your time.&quot;</em> <br>
+— Conrad Hilton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
