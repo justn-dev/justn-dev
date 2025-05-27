@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't be afraid that you do not know something. Be afraid of not learning about it.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;Be like a postage stamp. Stick to it until you get there.&quot;</em> <br>
+— Bob Proctor
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
