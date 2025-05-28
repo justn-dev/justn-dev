@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The nearer a man comes to a calm mind, the closer he is to strength.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;Life is a question and how we live it is our answer.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
