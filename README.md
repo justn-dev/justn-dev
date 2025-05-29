@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To avoid criticism, do nothing, say nothing, and be nothing.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Keep your face always toward the sunshine -  shadows will fall behind you.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
