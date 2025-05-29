@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Learn to value yourself, which means: fight for your happiness.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;We cannot expect to be happy always... by experiencing evil as well as good we become wise.&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
