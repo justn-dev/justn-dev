@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Only those who will risk going too far can possibly find out how far one can go.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;Sometimes you have to shut your eyes, so you can see the real beauty.&quot;</em> <br>
+— Kilian Jornet
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
