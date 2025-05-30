@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature!&quot;</em> <br>
-— Charles Darwin
+<em>&quot;It's very strange that the people you love are often the people you're most cruel to.&quot;</em> <br>
+— Kenneth Branagh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
