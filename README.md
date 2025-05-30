@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything great that has ever happened to humanity has begun as a single thought in someone's mind.&quot;</em> <br>
-— Yanni
+<em>&quot;Go for it now. The future is promised to no one.&quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
