@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's very strange that the people you love are often the people you're most cruel to.&quot;</em> <br>
-— Kenneth Branagh
+<em>&quot;An un-examined life is not worth living.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
