@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Most of us will do anything to avoid facing ourselves.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;Walk towards the sunshine, and the shadows will fall behind you.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
