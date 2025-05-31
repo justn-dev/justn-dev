@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If there's a definition of freedom, I think it's this: living life on your terms.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;Most of us will do anything to avoid facing ourselves.&quot;</em> <br>
+— Lolly Daskal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
