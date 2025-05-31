@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You may be disappointed if you fail, but you are doomed if you don't try. &quot;</em> <br>
-— Beverly Sills
+<em>&quot;The real measure of your wealth is how much you'd be worth if you lost all your money.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
