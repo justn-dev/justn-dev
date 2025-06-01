@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding.&quot;</em> <br>
-— John D. Rockefeller
+<em>&quot;A man is but a product of his thoughts. What he thinks he becomes.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
