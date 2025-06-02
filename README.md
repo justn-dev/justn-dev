@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You have within you right now, everything you need to deal with whatever the world can throw at you.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;People spend too much time doing and not enough time thinking about what they should be doing.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
