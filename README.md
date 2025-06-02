@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The salvation of the world lies in the human heart.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;Love is the absence of judgment.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
