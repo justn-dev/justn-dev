@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What most people need to learn in life is how to love people and use things instead of using people and loving things.&quot;</em> <br>
-— Unknown
+<em>&quot;Some people want it to happen, some wish it would happen, others make it happen.&quot;</em> <br>
+— Michael Jordan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
