@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Anger exceeding limits causes fear and excessive kindness eliminates respect.&quot;</em> <br>
-— Euripides
+<em>&quot;The only man who never makes mistakes is the man who never does anything.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
