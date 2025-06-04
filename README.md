@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want something then you lose everything. If you don't want anything then you already have everything.&quot;</em> <br>
-— Seungsahn
+<em>&quot;If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
