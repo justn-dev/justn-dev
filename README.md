@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Knowing others is wisdom, knowing yourself is enlightenment.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;The act of taking the first step is what separates the winners from the losers.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
