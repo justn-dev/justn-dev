@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no path to Happiness. Happiness is the path.&quot;</em> <br>
-— Dan Millman
+<em>&quot;I know not all that may be coming, but be it what it will, I'll go to it laughing.&quot;</em> <br>
+— Herman Melville
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
