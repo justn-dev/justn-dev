@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way.&quot;</em> <br>
-— Alan Watts
+<em>&quot;When you view failure as feedback, you get more done. When you view failure as a finality, you get nothing done.&quot;</em> <br>
+— Jack Butcher
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
