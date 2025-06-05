@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Health is the greatest of all possessions.&quot;</em> <br>
-— Jonathan Swift
+<em>&quot;Be like a postage stamp. Stick to it until you get there.&quot;</em> <br>
+— Bob Proctor
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
