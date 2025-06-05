@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you change the way you look at things, the things you look at change. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
