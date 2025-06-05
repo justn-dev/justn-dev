@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Most people fail in life not because they aim too high and miss, but because they aim too low and hit.&quot;</em> <br>
-— Les Brown
+<em>&quot;Fear can hold you prisoner. Hope can set you free.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
