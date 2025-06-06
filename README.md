@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To be great is to be misunderstood.&quot;</em> <br>
-— Ralph Waldo Emerson
+<em>&quot;Where there is no struggle, there is no strength. &quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
