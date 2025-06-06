@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No valid plans for the future can be made by those who have no capacity for living now.&quot;</em> <br>
-— Alan Watts
+<em>&quot;You don't have to control your thoughts; you just have to stop letting them control you.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
