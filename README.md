@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Patience is bitter, but its fruit is sweet.&quot;</em> <br>
-— Aristotle
+<em>&quot;I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
