@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Always be a first-rate version of yourself, instead of a second-rate version of someone else.&quot;</em> <br>
-— Judy Garland
+<em>&quot;What we know is a drop, what we don't know is an ocean. &quot;</em> <br>
+— Isaac Newton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
