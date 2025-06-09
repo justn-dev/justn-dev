@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I defeat my enemies when I make them my friends.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
