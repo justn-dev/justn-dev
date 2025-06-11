@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;There is no self-discovery without pain and loss.&quot;</em> <br>
+— Anita Krizzan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
