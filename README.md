@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Help others and give something back.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;What have you done today to make someone else happy?&quot;</em> <br>
+— Deepam Chaterjee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
