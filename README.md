@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We've got to live, no matter how many skies have fallen.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;Don't worry about being successful, but work toward being significant and the success will naturally follow.&quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
