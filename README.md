@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A leader leads by example, not by force.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Make peace within, and there will be no one who can overcome you. And no one you will wish to overcome.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
