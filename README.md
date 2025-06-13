@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Big people don't make people feel small.&quot;</em> <br>
-— Robin Sharma
+<em>&quot;We must embrace pain and burn it as fuel for our journey.&quot;</em> <br>
+— Kenji Miyazawa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
