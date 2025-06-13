@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Doing what you love is the cornerstone of having abundance in your life. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Always be a first-rate version of yourself, instead of a second-rate version of someone else.&quot;</em> <br>
+— Judy Garland
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
