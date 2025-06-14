@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh.&quot;</em> <br>
-— Pema Chodron
+<em>&quot;Live as if you were to die tomorrow. Learn as if you were to live forever.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
