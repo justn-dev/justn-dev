@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Honesty is the first chapter in the book of wisdom.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
