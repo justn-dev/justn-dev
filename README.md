@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be confident, not certain.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;When you believe in a thing, believe in it all the way, implicitly and unquestionable.&quot;</em> <br>
+— Walt Disney
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
