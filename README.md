@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Greatness lies not in being strong, but in the right use of strength.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;It's not whether you get knocked down, its whether you get back up.&quot;</em> <br>
+— Vince Lombardi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
