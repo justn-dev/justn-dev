@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The search for happiness is one of the chief sources of unhappiness.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences &quot;</em> <br>
+— Nikola Tesla
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
