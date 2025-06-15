@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results.&quot;</em> <br>
-— James Allen
+<em>&quot;Think and wonder, wonder and think.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
