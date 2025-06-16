@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Know yourself and you will win all battles.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
