@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;If you have to be in a soap opera try not to be cast in the worst role.&quot;</em> <br>
+— Judy Garland
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
