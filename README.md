@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Even if you're sure you can win, be careful that you can live with what you lose.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
