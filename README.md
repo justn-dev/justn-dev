@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is nothing more than a few simple disciplines practiced every day.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next.&quot;</em> <br>
+— Herbert Hoover
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
