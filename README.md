@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Time and health are two precious assets that we don't recognize and appreciate until they have been depleted. &quot;</em> <br>
-— Denis Waitley
+<em>&quot;You are never too old to set another goal or to dream a new dream.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
