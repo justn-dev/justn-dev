@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;He who laughs at himself never runs out of things to laugh at.&quot;</em> <br>
-— Epictetus
+<em>&quot;Your heart is the size of an ocean. Go find yourself in its hidden depths.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
