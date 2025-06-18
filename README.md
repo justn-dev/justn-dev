@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Do not bite at the bait of pleasure, till you know there is no hook beneath it.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
