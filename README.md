@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The number one cause of failure is the fear of failure.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything.&quot;</em> <br>
+— Shunryu Suzuki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
