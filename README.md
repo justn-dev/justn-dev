@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not bite at the bait of pleasure, till you know there is no hook beneath it.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
