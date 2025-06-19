@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no such thing as a great talent without great willpower.&quot;</em> <br>
-— Honore de Balzac
+<em>&quot;Nothing you do is going to matter that much in the long run. Don't take yourself so seriously.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
