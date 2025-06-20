@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't explain your philosophy. Embody it.&quot;</em> <br>
-— Epictetus
+<em>&quot;Happiness is not something ready made. It comes from your own actions.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
