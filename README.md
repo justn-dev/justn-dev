@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If your mind is empty, it is always ready for anything, it is open to everything.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive.&quot;</em> <br>
+— Joan Rivers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
