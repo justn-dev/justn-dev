@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;The best teacher is experience and not through someone's distorted point of view.&quot;</em> <br>
+— Jack Kerouac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
