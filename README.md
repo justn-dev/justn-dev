@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you love life, don't waste time, for time is what life is made up of. &quot;</em> <br>
-— Bruce Lee
+<em>&quot;It's not how much money you make, it's how much money you keep.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
