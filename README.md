@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;The smallest act of kindness is worth more than the greatest intention.  &quot;</em> <br>
+— Kahlil Gibran
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
