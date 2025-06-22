@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way.&quot;</em> <br>
-— Osho
+<em>&quot;Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed.&quot;</em> <br>
+— William Faulkner
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
