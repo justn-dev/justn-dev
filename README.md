@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You are the only real obstacle in your path to a fulfilling life.&quot;</em> <br>
-— Les Brown
+<em>&quot;There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
