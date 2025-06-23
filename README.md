@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace.&quot;</em> <br>
-— Dogen
+<em>&quot;Don't let what you cannot do interfere with what you can do.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
