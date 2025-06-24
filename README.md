@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;There is no value in anything until it is finished. &quot;</em> <br>
+— Genghis Khan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
