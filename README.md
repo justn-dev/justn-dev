@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Sometimes letting things go is an act of far greater power than defending or hanging on.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;Heal the past, live the present, dream the future.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
