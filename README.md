@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The traveler sees what he sees. The tourist sees what he has come to see.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Opportunity is missed by most people because it is dressed in overalls and looks like work.&quot;</em> <br>
+— Thomas Edison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
