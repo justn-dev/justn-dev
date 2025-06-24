@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is peace even in the storm.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
