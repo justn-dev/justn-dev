@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you believe you can, you can. If you believe you can't, then, well you can't.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The more you extend kindness to yourself, the more it will become your automatic response to others.&quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
