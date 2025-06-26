@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Teachers open the door. You enter by yourself. &quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Adventure is not outside man; it is within.&quot;</em> <br>
+— George Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
