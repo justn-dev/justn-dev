@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Circumstances do not make the man, they reveal him.&quot;</em> <br>
-— James Allen
+<em>&quot;There is no fear for one whose mind is not filled with desires.&quot;</em> <br>
+— Buddha
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
