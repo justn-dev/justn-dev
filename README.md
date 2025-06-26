@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no fear for one whose mind is not filled with desires.&quot;</em> <br>
-— Buddha
+<em>&quot;Adults are just children who earn money.&quot;</em> <br>
+— Kenneth Branagh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
