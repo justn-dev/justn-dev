@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What's the point in being smart enough to read, if everything you read makes you dumb?&quot;</em> <br>
-— C. Sean McGee
+<em>&quot;Simplicity is a difficult thing to achieve.  &quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
