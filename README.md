@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To be in harmony with the wholeness of things is not to have anxiety over imperfections.&quot;</em> <br>
-— Dogen
+<em>&quot;Whatever you decide to do, make sure it makes you happy.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
