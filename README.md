@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To live is the rarest thing in the world. Most people exist, that is all. &quot;</em> <br>
-— Oscar Wilde
+<em>&quot;You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being.&quot;</em> <br>
+— Anita Krizzan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
