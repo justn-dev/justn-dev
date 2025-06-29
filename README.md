@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Peace is not absence of conflict, it is the ability to handle conflict by peaceful means.&quot;</em> <br>
-— Ronald Reagan
+<em>&quot;Anyone who reads a book with a sense of obligation does not understand the art of reading.&quot;</em> <br>
+— Lin Yutang
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
