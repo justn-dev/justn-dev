@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can do nothing to change the past, and the future will never come exactly as you plan or hope for.&quot;</em> <br>
-— Dan Millman
+<em>&quot;If you have only one smile in you give it to the people you love.&quot;</em> <br>
+— Maya Angelou
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
