@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If we all did the things we are capable of doing, we would literally astound ourselves.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;When you are tempted to give up, your breakthrough is probably just around the corner.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
