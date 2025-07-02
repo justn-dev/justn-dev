@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People are doing the best that they can from their own level of consciousness.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Act the way you want to be and soon you'll be the way you act.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
