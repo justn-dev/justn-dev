@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I don't ever give up. I'd have to be dead or completely incapacitated.&quot;</em> <br>
-— Elon Musk
+<em>&quot;No one is useless in this world who lightens the burdens of another.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
