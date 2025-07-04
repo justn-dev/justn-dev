@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Genius is the ability to act rightly without precedent - the power to do the right thing the first time.&quot;</em> <br>
-— Elbert Hubbard
+<em>&quot;Freedom lies in being bold.&quot;</em> <br>
+— Robert Frost
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
