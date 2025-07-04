@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Genius is the ability to act rightly without precedent - the power to do the right thing the first time.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
