@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is our choices that show what we truly are, far more than our abilities.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;You have within you right now, everything you need to deal with whatever the world can throw at you.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
