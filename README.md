@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;You can't go forward and backwards at the same time.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
