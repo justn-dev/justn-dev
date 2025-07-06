@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you want something in life, you just gotta reach out and grab it.&quot;</em> <br>
-— Christopher McCandless
+<em>&quot;No amount of regretting can change the past, and no amount of worrying can change the future.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
