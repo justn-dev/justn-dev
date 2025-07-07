@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.&quot;</em> <br>
-— Helen Keller
+<em>&quot;Not everything that weighs you down is yours to carry.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
