@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;See what you're doing wrong, laugh at it, change and do better.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Remember the entrance to the sanctuary is inside you.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
