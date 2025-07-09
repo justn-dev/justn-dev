@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is nothing in the world so irresistibly contagious as laughter and good humor.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;You're always free to change your mind and choose a different future, or a different past.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
