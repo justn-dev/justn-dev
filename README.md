@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;There is nothing in the world so irresistibly contagious as laughter and good humor.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
