@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you.&quot;</em> <br>
-— Peter Drucker
+<em>&quot;Life is ours to be spent, not to be saved. &quot;</em> <br>
+— D. H. Lawrence
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
