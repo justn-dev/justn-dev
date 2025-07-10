@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;How you think when you lose determines how long it will be until you win.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Nothing external to you has any power over you.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
