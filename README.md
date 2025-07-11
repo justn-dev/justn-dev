@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Know the rules well, so you can break them effectively.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Imagination means nothing without doing.  &quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
