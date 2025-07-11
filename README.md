@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result.&quot;</em> <br>
-— James Allen
+<em>&quot;A self that goes on changing is a self that goes on living.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
