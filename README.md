@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;From error to error one discovers the entire truth.&quot;</em> <br>
-— Sigmund Freud
+<em>&quot;It isn't what you do, but how you do it.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
