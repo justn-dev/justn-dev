@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wheels of justice grind slow but grind fine.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Everything you look at can become a fairy tale and you can get a story from everything you touch.&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
