@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People should pursue what they're passionate about. That will make them happier than pretty much anything else.&quot;</em> <br>
-— Elon Musk
+<em>&quot;Always be a first-rate version of yourself, instead of a second-rate version of someone else.&quot;</em> <br>
+— Judy Garland
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
