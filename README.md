@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You are the only real obstacle in your path to a fulfilling life.&quot;</em> <br>
-— Les Brown
+<em>&quot;Life is essentially an endless series of problems. The solution to one problem is merely the creation of another.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
