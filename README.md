@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you make a choice, you change the future.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;You don't need anybody to tell you who you are or what you are. You are what you are!&quot;</em> <br>
+— John Lennon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
