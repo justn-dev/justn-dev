@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Go confidently in the direction of your dreams. Live the life you've imagined.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
