@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you're really truthful with yourself, it's a wonderful guidance.  &quot;</em> <br>
-— Charlie Chaplin
+<em>&quot;If you can't explain it simply, you don't understand it well enough.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
