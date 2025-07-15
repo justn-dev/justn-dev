@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you are far from the enemy, make him believe you are near.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;All problems are interpersonal relationship problems.&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
