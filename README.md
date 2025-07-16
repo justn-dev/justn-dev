@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Working hard for something we don't care about is called stress: Working hard for something we love is called passion.&quot;</em> <br>
-— Simon Sinek
+<em>&quot;The thing about smart people is that they seem like crazy people to dumb people.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
