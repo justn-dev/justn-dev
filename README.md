@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you have only one smile in you give it to the people you love.&quot;</em> <br>
-— Maya Angelou
+<em>&quot;The farther backward you can look, the farther forward you are likely to see.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
