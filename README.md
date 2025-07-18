@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The difference between impossible and possible is a willing heart.&quot;</em> <br>
-— Lolly Daskal
+<em>&quot;Be happy in the moment, that's enough. Each moment is all we need, not more.&quot;</em> <br>
+— Mother Teresa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
