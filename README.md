@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When we have our body and mind in order, everything else will exist in the right place, in the right way.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;People do not decide their futures, they decide their habits and their habits decide their futures.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
