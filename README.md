@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Leaders spend 5% of their time on the problem &amp; 95% of their time on the solution. Get over it &amp; crush it!&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
