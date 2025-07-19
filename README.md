@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The divine is not something high above us. It is in heaven, it is in earth, it is inside us.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Leaders spend 5% of their time on the problem &amp; 95% of their time on the solution. Get over it &amp; crush it!&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
