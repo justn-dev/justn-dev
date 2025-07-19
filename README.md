@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Decide upon your major definite purpose in life and then organize all your activities around it.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;The world is a puzzle; no need to make sense out of it.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
