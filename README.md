@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The question isn't who is going to let me; it's who is going to stop me.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;Lack of direction, not lack of time, is the problem. We all have twenty-four hour days.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
