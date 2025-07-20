@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company. &quot;</em> <br>
-— George Washington
+<em>&quot;The question isn't who is going to let me; it's who is going to stop me.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
