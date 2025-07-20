@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every moment of happiness requires a great amount of Ignorance&quot;</em> <br>
-— Honore de Balzac
+<em>&quot;A man should never be ashamed to own that he has been in the wrong, which is but saying, that he is wiser today than yesterday.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
