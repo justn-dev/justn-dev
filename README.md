@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be polite to all, but intimate with few.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;Wishing to be friends is quick work, but friendship is a slow ripening fruit.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
