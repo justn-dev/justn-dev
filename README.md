@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every moment is a fresh beginning.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;Words are the clothing of our thoughts.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
