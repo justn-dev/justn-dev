@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Men are equal; it is not birth but virtue that makes the difference.&quot;</em> <br>
-— Voltaire
+<em>&quot;Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
