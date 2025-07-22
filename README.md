@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People who avoid failure also avoid success.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;The less you open your heart to others, the more your heart suffers.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
