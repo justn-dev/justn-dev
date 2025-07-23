@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Goals are the fuel in the furnace of achievement.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Be the silent watcher of your thoughts and behavior. You are beneath the thinker.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
