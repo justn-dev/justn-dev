@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Weeds are flowers too, once you get to know them.&quot;</em> <br>
-— A.A. Milne
+<em>&quot;We are what we repeatedly do. Excellence, then, is not an act, but a habit.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
