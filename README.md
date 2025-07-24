@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Genius, in truth, means little more than the faculty of perceiving in an unhabitual way.&quot;</em> <br>
-— William James
+<em>&quot;People are not disturbed by things, but by the views they take of them.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
