@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to know what God thinks about money just look at the people He gives it to.&quot;</em> <br>
-— Alexander Pope
+<em>&quot;Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
