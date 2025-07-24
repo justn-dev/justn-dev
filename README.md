@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You don't have to be great to start, but you have to start to be great.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Happiness is not a goal...it's a by-product of a life well lived.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
