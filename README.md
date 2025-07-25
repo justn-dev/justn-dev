@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's easier to lose than to win.  &quot;</em> <br>
-— Wayne Gretzky
+<em>&quot;You just can't beat the person who never gives up. &quot;</em> <br>
+— Babe Ruth
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
