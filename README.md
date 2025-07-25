@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Ideas do not reach perfection in a day, no matter how much study is put upon them.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending.&quot;</em> <br>
+— Carl Bard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
