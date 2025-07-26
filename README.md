@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In order to attain the impossible, one must attempt the absurd.&quot;</em> <br>
-— Miguel de Cervantes
+<em>&quot;Either you choose to stay in the shallow end of the pool or you go out into the ocean.&quot;</em> <br>
+— Christopher Reeve
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
