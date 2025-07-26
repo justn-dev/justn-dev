@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Either you choose to stay in the shallow end of the pool or you go out into the ocean.&quot;</em> <br>
-— Christopher Reeve
+<em>&quot;Far and away the best prize that life has to offer is the chance to work hard at work worth doing.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
