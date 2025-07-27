@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours. &quot;</em> <br>
-— Orison Swett Marden
+<em>&quot;It is the greatest of all mistakes to do nothing because you can only do little; do something.&quot;</em> <br>
+— Sydney Smith
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
