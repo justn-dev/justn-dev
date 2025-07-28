@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If we all did the things we are capable of doing, we would literally astound ourselves.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
