@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them.&quot;</em> <br>
-— W. Clement Stone
+<em>&quot;Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
