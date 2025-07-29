@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;We are shaped and fashioned by what we love.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
