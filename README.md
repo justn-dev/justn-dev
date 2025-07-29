@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We are shaped and fashioned by what we love.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories.&quot;</em> <br>
+— Ray Bradbury
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
