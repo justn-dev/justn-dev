@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories.&quot;</em> <br>
-— Ray Bradbury
+<em>&quot;You may think I'm small, but I have a universe inside my mind.&quot;</em> <br>
+— Yoko Ono
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
