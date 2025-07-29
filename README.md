@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Words are clothes that thoughts wear&quot;</em> <br>
-— Samuel Butler
+<em>&quot;Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
