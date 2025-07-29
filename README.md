@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The past has no power over the present moment. &quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;The only real mistake is the one from which we learn nothing. &quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
