@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Fashion fades, only style remains the same.&quot;</em> <br>
-— Coco Chanel
+<em>&quot;Character is destiny.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
