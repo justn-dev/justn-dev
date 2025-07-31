@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;You are the only real obstacle in your path to a fulfilling life.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
