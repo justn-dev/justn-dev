@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Decide whether or not the goal is worth the risks involved. If it is, stop worrying.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
