@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The first step is to establish that something is possible; then probability will occur.&quot;</em> <br>
-— Elon Musk
+<em>&quot;When the time is gone, you can never get it back.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
