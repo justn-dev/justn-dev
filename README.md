@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only thing worse than being blind is having sight but no vision.&quot;</em> <br>
-— Helen Keller
+<em>&quot;You are the sky. Everything else - it's just the weather.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
