@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Make peace with your inner turmoil.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
