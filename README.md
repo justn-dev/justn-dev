@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Sometimes out of your biggest misery, comes your greatest gain.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Happiness cannot be traveled to, owned, earned, worn or consumed.&quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
