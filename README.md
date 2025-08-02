@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you can't argue both sides, you can't argue.&quot;</em> <br>
-— Jack Butcher
+<em>&quot;Without struggle, no progress and no result. Every breaking of habit produces a change in the machine.&quot;</em> <br>
+— G.I. Gurdjieff
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
