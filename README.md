@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Without struggle, no progress and no result. Every breaking of habit produces a change in the machine.&quot;</em> <br>
-— G.I. Gurdjieff
+<em>&quot;Don't ever save anything for a special occasion. Being alive is the special occasion.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
