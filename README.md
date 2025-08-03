@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's easier to go down a hill than up it but the view is much better at the top.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;We have a duty to maintain the light of consciousness to make sure it continues into the future.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
