@@ -1,4 +1,4 @@
-### Good night 😴
+### Good morning ☀️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;Maybe you are searching among the branches, for what only appears in the roots.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
