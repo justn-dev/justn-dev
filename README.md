@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Deeds will not be less valiant because they are upraised.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;Fear is what stops you. Courage is what keeps you going.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
