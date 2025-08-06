@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success in any endeavor depends on the degree to which it is an expression of your true self. &quot;</em> <br>
-— Ralph Marston
+<em>&quot;Nature is pleased with simplicity. And nature is no dummy.&quot;</em> <br>
+— Isaac Newton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
