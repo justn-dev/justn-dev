@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Hope is not a strategy. Luck is not a factor. Fear is not an option.&quot;</em> <br>
-— James Cameron
+<em>&quot;In order to control myself I must first accept myself by going with and not against my nature.&quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
