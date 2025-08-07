@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;Rich people have small TVs and big libraries, and poor people have small libraries and big TVs.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
