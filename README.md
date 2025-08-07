@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in.&quot;</em> <br>
-— Robert Greene
+<em>&quot;Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
