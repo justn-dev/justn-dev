@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;An intelligence test sometimes shows a man how smart he would have been not to have taken it.&quot;</em> <br>
-— Laurence J. Peter
+<em>&quot;I am not what happened to me, I am what I choose to become.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
