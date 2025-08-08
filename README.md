@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Anything becomes interesting if you look at it long enough..&quot;</em> <br>
-— Gustave Flaubert
+<em>&quot;Anything worth doing is worth doing slowly.&quot;</em> <br>
+— Mae West
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
