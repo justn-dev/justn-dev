@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners.&quot;</em> <br>
-— Nicolas Chamfort
+<em>&quot;To know even one life has breathed easier because you have lived. This is to have succeeded.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
