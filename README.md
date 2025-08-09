@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't give up the fight, Stand up for your rights.&quot;</em> <br>
-— Bob Marley
+<em>&quot;Failure is the key to success; each mistake teaches us something.&quot;</em> <br>
+— Morihei Ueshiba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
