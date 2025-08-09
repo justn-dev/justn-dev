@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything begins with an idea.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt.&quot;</em> <br>
+— Honore de Balzac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
