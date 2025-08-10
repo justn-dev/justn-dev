@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whenever you do a thing, act as if all the world were watching.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;No man will make a great leader who wants to do it all himself or to get all the credit for doing it.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
