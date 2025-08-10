@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Nothing has any power over me other than that which I give it through my conscious thoughts.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
