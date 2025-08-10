@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;All life is an experiment. The more experiments you make, the better.&quot;</em> <br>
-— Ralph Waldo Emerson
+<em>&quot;Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
