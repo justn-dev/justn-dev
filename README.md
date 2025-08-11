@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways.&quot;</em> <br>
-— Sigmund Freud
+<em>&quot;Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them.&quot;</em> <br>
+— W. Clement Stone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
