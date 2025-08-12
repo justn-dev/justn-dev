@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;It is hard to fail, but it is worse never to have tried to succeed.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
