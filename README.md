@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The way to change others' minds is with affection, and not anger.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
