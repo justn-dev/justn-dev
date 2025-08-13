@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The two most important days in your life are the day you are born and the day you find out why.&quot;</em> <br>
-— Mark Twain
+<em>&quot;We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop.&quot;</em> <br>
+— Mother Teresa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
