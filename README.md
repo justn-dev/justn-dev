@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man who dares to waste one hour of time has not discovered the value of life.&quot;</em> <br>
-— Charles Darwin
+<em>&quot;Walk towards the sunshine, and the shadows will fall behind you.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
