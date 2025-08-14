@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Change happens when the pain of holding on becomes greater than the fear of letting go.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Fallacies do not cease to be fallacies because they become fashions.&quot;</em> <br>
+— Gilbert Chesterton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
