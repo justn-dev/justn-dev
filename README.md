@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Goodness is the only investment that never fails.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return.&quot;</em> <br>
+— Deepak Chopra
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
