@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;They say love is the best investment; the more you give, the more you get in return.&quot;</em> <br>
-— Audrey Hepburn
+<em>&quot;Success is going from failure to failure without losing your enthusiasm&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
