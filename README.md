@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I wasn't brave, I just didn't have time to be scared.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Success is achieved and maintained by those who try and keep trying. &quot;</em> <br>
+— W. Clement Stone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
