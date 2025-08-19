@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;A day without laughter is a day wasted.&quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
