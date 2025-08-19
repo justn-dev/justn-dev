@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The measure of who we are is what we do with what we have.&quot;</em> <br>
-— Vince Lombardi
+<em>&quot;Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. &quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
