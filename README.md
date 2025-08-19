@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Start each day with a positive thought and a grateful heart.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love.&quot;</em> <br>
+— John Lennon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
