@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed.&quot;</em> <br>
-— Mark Twain
+<em>&quot;The more something scares you, the more you should do it.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
