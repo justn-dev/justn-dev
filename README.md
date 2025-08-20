@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every act of creation is first an act of destruction.&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;I never dwell on what happened. You can't change it. Move forward.&quot;</em> <br>
+— Joan Rivers
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
