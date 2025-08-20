@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It doesn't matter if the glass is half empty or half full. Be grateful you have a glass - you're the only person that can decide what's in it.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;Every act of creation is first an act of destruction.&quot;</em> <br>
+— Pablo Picasso
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
