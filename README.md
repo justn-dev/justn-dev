@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Develop success from failures. Discouragement and failure are two of the surest stepping stones to success.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;Time and health are two precious assets that we don't recognize and appreciate until they have been depleted. &quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
