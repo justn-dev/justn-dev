@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Thinking will not overcome fear but action will. &quot;</em> <br>
-— W. Clement Stone
+<em>&quot;None of us can change our yesterdays but all of us can change our tomorrows.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
