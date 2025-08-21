@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing makes a man broad-minded like adversity.&quot;</em> <br>
-— Will Rogers
+<em>&quot;I never said it would be easy, I only said it would be worth it.&quot;</em> <br>
+— Mae West
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
