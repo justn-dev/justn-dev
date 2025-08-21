@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Failure is the key to success; each mistake teaches us something.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;We can know only that we know nothing. And that is the highest degree of human wisdom.&quot;</em> <br>
+— Leo Tolstoy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
