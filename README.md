@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It matters not what someone is born, but what they grow to be.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;Keep your eyes on the stars, but remember to keep your feet on the ground.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
