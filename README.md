@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;You must either modify your dreams or magnify your skills.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
