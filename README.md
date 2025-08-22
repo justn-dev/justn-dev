@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;Through selfless service, you will always be fruitful and find the fulfillment of your desires.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
