@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nature does not hurry, yet everything is accomplished.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it.&quot;</em> <br>
+— Gurbaksh Chahal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
