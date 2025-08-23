@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;I dream my painting and I paint my dream.&quot;</em> <br>
+— Vincent van Gogh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
