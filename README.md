@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Some people find fault like there is a reward for it.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Rewards and punishment is the lowest form of education.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
