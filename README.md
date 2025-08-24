@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No tree, it is said, can grow to heaven unless its roots reach down to hell.&quot;</em> <br>
-— Carl Jung
+<em>&quot;Smile, breathe and go slowly.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
