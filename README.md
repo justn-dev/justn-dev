@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Happiness is not a goal...it's a by-product of a life well lived.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
