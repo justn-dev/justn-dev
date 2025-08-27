@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A bird does not sing because it has an answer. It sings because it has a song.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;You cannot control the behavior of others, but you can always choose how you respond to it.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
