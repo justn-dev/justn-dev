@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Courage is not having the strength to go on; it is going on when you don't have the strength.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;To the world you may be one person; but to one person you may be the world.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
