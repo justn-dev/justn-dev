@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no way to happiness - happiness is the way.&quot;</em> <br>
-— Thich Nhat Hanh
+<em>&quot;Do you want to know who you are? Don't ask. Act! Action will delineate and define you.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
