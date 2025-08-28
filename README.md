@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Things turn out best for the people who make the best of the way things turn out.&quot;</em> <br>
-— John Wooden
+<em>&quot;Real learning comes about when the competitive spirit has ceased.&quot;</em> <br>
+— Jiddu Krishnamurti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
