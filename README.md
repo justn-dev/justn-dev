@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The hard path is often the right one. The river teaches more than the shore.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
