@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;May you find grace as you surrender to life. May you find happiness, as you stop seeking it.&quot;</em> <br>
-— Dan Millman
+<em>&quot;It is hard to fail, but it is worse never to have tried to succeed.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
