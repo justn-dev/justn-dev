@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A wise man will be master of his mind, a fool will be its slave.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;A lie can travel half way around the world while the truth is putting on its shoes.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
