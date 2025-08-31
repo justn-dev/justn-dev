@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Those who are easily shocked should be shocked more often.&quot;</em> <br>
-— Mae West
+<em>&quot;When you consider things like the stars, our affairs don't seem to matter very much, do they?&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
