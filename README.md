@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;All you need is the plan, the road map, and the courage to press on to your destination.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;By words the mind is winged.&quot;</em> <br>
+— Aristophanes
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
