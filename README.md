@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Selfishness and greed, individual or national, cause most of our troubles.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;Some of your greatest lessons come from your darkest moments.&quot;</em> <br>
+— Roger Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
