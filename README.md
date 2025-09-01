@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes.&quot;</em> <br>
-— Carl Jung
+<em>&quot;Life comes at us in waves. We can't predict or control those waves, but we can learn to surf.&quot;</em> <br>
+— Dan Millman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
