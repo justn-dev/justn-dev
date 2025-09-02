@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Just try to be the best you can be; never cease trying to be the best you can be. That's in your power.&quot;</em> <br>
-— John Wooden
+<em>&quot;You can start changing our world for the better daily, no matter how small the action.&quot;</em> <br>
+— Nelson Mandela
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
