@@ -1,4 +1,4 @@
-### Good night 😴
+### Good morning ☀️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We have a choice everyday regarding the attitude we will embrace for that day.&quot;</em> <br>
-— Charles Swindoll
+<em>&quot;The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
