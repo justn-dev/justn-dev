@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune. &quot;</em> <br>
-— Charles Swindoll
+<em>&quot;Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad.&quot;</em> <br>
+— Harry S. Truman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
