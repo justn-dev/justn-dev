@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.&quot;</em> <br>
-— Bob Marley
+<em>&quot;Change is hard at first, messy in the middle and gorgeous at the end.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
