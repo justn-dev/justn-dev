@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Follow the man who seeks the truth; run from the man who has found it.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;Setting goals is the first step in turning the invisible into the visible.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
