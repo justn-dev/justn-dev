@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Laziness may appear attractive, but work gives satisfaction.&quot;</em> <br>
-— Anne Frank
+<em>&quot;A scientific man ought to have no wishes, no affections, - a mere heart of stone.&quot;</em> <br>
+— Charles Darwin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
