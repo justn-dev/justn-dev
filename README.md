@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is a long lesson in humility. &quot;</em> <br>
-— James Matthew Barrie
+<em>&quot;Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  &quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
