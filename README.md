@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  &quot;</em> <br>
-— Estee Lauder
+<em>&quot;Nothing can survive without food. Everything we consume acts either to heal us or to poison us.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
