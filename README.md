@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving.&quot;</em> <br>
-— Yanni
+<em>&quot;There is no absolute success in the world, only constant progress.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
