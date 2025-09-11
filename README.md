@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You need a plan to build a house. To build a life, it is even more important to have a plan or goal.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts.&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
