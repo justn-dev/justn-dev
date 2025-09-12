@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Superstars think like superstars long before the fans or the press anoint them.&quot;</em> <br>
-— John Eliot
+<em>&quot;Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
