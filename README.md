@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse.&quot;</em> <br>
-— Alfred Adler
+<em>&quot;The weak can never forgive. Forgiveness is the attribute of the strong.&quot;</em> <br>
+— Mahatma Gandhi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
