@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Always do your best. What you plant now, you will harvest later.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
