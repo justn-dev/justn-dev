@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you take responsibility for yourself you will develop a hunger to accomplish your dream.&quot;</em> <br>
-— Les Brown
+<em>&quot;Failure is a prerequisite for great success. If you want success faster, double your rate of failure.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
