@@ -1,4 +1,4 @@
-### Good evening ☕
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man is but a product of his thoughts. What he thinks he becomes.&quot;</em> <br>
-— Mahatma Gandhi
+<em>&quot;Public opinion is the worst of all opinions.&quot;</em> <br>
+— Nicolas Chamfort
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
