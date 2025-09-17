@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One loyal friend is worth ten thousand relatives.&quot;</em> <br>
-— Euripides
+<em>&quot;Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
