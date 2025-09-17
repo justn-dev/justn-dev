@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;When you love someone, you love the person as they are, and not as you'd like them to be.&quot;</em> <br>
+— Leo Tolstoy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
