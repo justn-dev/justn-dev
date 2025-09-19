@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Some people want it to happen, some wish it would happen, others make it happen.&quot;</em> <br>
-— Michael Jordan
+<em>&quot;Successful people ask better questions, and as a result, they get better answers.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
