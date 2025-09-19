@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What the eye doesn't see and the mind doesn't know, doesn't exist.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;The most virtuous are those who content themselves with being virtuous without seeking to appear so.&quot;</em> <br>
+— Plato
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
