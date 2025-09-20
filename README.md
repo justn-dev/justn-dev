@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If life were predictable it would cease to be life, and be without flavor.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Leaders spend 5% of their time on the problem &amp; 95% of their time on the solution. Get over it &amp; crush it!&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
