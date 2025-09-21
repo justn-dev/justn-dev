@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Where there's life, there's hope.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing.&quot;</em> <br>
+— Morihei Ueshiba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
