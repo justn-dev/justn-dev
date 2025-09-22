@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nature does not hurry, yet everything is accomplished.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
