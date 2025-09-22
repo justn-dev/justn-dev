@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A journey of a thousand miles begins with a single step.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;The most courageous act is still to think for yourself. Aloud.&quot;</em> <br>
+— Coco Chanel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
