@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;But better die than live mechanically a life that is a repetition of repetitions.&quot;</em> <br>
-— D. H. Lawrence
+<em>&quot;Life is a succession of lessons, which must be lived to be understood.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
