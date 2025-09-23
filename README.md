@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The future depends on what you do today. &quot;</em> <br>
-— Mahatma Gandhi
+<em>&quot;Health is the greatest of all possessions.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
