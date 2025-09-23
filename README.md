@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Formal education will make you a living, self-education will make you a fortune.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;A dream doesn't become reality through magic it takes sweat, determination and hard work.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
