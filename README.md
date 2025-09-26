@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The finish line is just the beginning of a whole new race.&quot;</em> <br>
-— Unknown
+<em>&quot;Enthusiasm makes up for a host of deficiencies.&quot;</em> <br>
+— Barack Obama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
