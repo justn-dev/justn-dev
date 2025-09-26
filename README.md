@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do your duty and a little more and the future will take care of itself.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;If you've made a mistake, it's better just to laugh at it.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
