@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I am thankful to all those who said no. It's because of them, I did it myself.  &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;Do your duty and a little more and the future will take care of itself.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
