@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
