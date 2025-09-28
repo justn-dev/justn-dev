@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;You will face many defeats in life, but never let yourself be defeated.&quot;</em> <br>
+— Maya Angelou
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
