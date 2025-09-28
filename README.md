@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You will face many defeats in life, but never let yourself be defeated.&quot;</em> <br>
-— Maya Angelou
+<em>&quot;What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
