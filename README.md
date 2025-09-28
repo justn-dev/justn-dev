@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The temptation to give up is strongest just before victory.&quot;</em> <br>
+<em>&quot;Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend.&quot;</em> <br>
 — Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
