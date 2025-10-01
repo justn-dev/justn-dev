@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's better to stand by someone's side than by yourself.&quot;</em> <br>
-— Jack London
+<em>&quot;Just do what must be done. This may not be happiness but it is greatness.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
