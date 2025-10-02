@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;He who is not contented with what he has, would not be contented with what he would like to have.&quot;</em> <br>
-— Socrates
+<em>&quot;Everybody needs a passion. That's what keeps life interesting.&quot;</em> <br>
+— Betty White
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
