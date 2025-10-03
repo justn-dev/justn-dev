@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The greatest work that kindness does to others is that it makes them kind themselves.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;To be alive - is Power.&quot;</em> <br>
+— Emily Dickinson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
