@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I have never let my schooling interfere with my education.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough. &quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
