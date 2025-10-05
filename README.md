@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Take into account that great love and great achievements involve great risk.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;When you are tempted to give up, your breakthrough is probably just around the corner.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
