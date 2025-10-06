@@ -17,7 +17,7 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
   <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
   ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
-  [<img align="right" width="50%" src="https://github-readme-stats.vercel.app/api?username=Xaydeptrai&show_icons=true&theme=synthwave">](https://metrics.lecoq.io/ouuan?template=classic)
+  [<img align="right" width="50%" src="https://github-readme-stats.vercel.app/api?username=justn-dev&show_icons=true&theme=synthwave">](https://metrics.lecoq.io/ouuan?template=classic)
   
   - Understands \`OOP\` well
   - \`HTML\`, \`CSS\`, \`Bootstrap\`: proficient
@@ -30,7 +30,7 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
   <img src="https://images.viblo.asia/1f5d99d1-8cb7-4d82-a627-d6934d20d94b.png" width="100" />
   
   ## <img src="https://images.viblo.asia/a22cc9ed-e446-4eae-ad55-1ddf8afbaa54.gif" width="30" /> CONTRIBUTIONS
-  [<img align="right" width="50%" src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xaydeptrai&show_icons=true&theme=synthwave&layout=compact">](https://metrics.lecoq.io/ouuan?template=classic)
+  [<img align="right" width="50%" src="https://github-readme-stats.vercel.app/api/top-langs/?username=justn-dev&show_icons=true&theme=synthwave&layout=compact">](https://metrics.lecoq.io/ouuan?template=classic)
   
   ####
 
