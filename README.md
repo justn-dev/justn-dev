@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The whole of life, from the moment you are born to the moment you die, is a process of learning.&quot;</em> <br>
+— Jiddu Krishnamurti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
