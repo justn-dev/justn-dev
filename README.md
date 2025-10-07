@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You cannot find peace avoiding life.&quot;</em> <br>
-— Virginia Woolf
+<em>&quot;Art is to console those who are broken by life.&quot;</em> <br>
+— Vincent van Gogh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
