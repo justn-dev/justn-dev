@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Faith is taking the first step even when you don't see the whole staircase.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;The nearer a man comes to a calm mind, the closer he is to strength.&quot;</em> <br>
+— Marcus Aurelius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
