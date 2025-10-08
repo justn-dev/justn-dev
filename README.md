@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Each day your life grows a day shorter. Make every move count.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;Only those who will risk going too far can possibly find out how far one can go.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
