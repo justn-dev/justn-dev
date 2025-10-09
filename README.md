@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The true soldier fights not because he hates what is in front of him, but because he loves what is behind him.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Problems remain as problems because people are busy defending them rather than finding solutions.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
