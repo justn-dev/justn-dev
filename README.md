@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;Adventure is not outside man; it is within.&quot;</em> <br>
+— George Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
