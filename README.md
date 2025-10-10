@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Words are the clothing of our thoughts.&quot;</em> <br>
-— Jonathan Swift
+<em>&quot;When you want to be honored by others, you learn to honor them first.&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
