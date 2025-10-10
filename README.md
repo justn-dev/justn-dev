@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you don't break your ropes while you're alive, do you think ghosts will do it after?&quot;</em> <br>
-— Kabir
+<em>&quot;If we are not able to smile, then the world will not have peace.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
