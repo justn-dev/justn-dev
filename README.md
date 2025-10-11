@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Our happiness depends on the habit of mind we cultivate.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;If you want to achieve greatness stop asking for permission.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
