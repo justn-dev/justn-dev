@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Remember that sometimes not getting what you want is a wonderful stroke of luck.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;By perseverance the snail reached the ark.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
