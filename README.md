@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The Truth is realized in an instant; the Act is practiced step by step.&quot;</em> <br>
-— Seungsahn
+<em>&quot;Remember that sometimes not getting what you want is a wonderful stroke of luck.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
