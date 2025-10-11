@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;Blessed is he who expects nothing, for he shall be disappointed.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
