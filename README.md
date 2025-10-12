@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;We can change our lives. We can do, have, and be exactly what we wish.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
