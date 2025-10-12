@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Fear not the path of Truth for the lack of People walking on it.&quot;</em> <br>
+— Robert F. Kennedy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
