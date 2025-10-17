@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You cannot always control what goes on outside. But you can always control what goes on inside. &quot;</em> <br>
-— Wayne Dyer
+<em>&quot;The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
