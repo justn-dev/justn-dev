@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Be brave to stand for what you believe in even if you stand alone.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
