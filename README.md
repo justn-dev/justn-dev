@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you lose yourself in something bigger than yourself, the more energy you will have.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;The most wasted day of all is that on which we have not laughed.&quot;</em> <br>
+— Nicolas Chamfort
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
