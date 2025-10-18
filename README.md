@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;The more you lose yourself in something bigger than yourself, the more energy you will have.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
