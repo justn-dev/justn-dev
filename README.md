@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The people who succeed are irrationally passionate about something.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;The greatest gift that you can give to others is the gift of unconditional love and acceptance. &quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
