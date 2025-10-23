@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything you've ever wanted is on the other side of fear.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;What people say, what people do, and what they say they do are entirely different things. &quot;</em> <br>
+— Margaret Mead
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
