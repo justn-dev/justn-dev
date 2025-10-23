@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What people say, what people do, and what they say they do are entirely different things. &quot;</em> <br>
-— Margaret Mead
+<em>&quot;Reversing your treatment of the man you have wronged is better than asking his forgiveness.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
