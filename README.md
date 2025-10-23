@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The most important battle is one to conquer yourself.&quot;</em> <br>
-— Yanni
+<em>&quot;The highest level of wisdom is when you not only accept but love adversity.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
