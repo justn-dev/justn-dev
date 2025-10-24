@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you are able to employ your will always for constructive purposes, you become the controller of your destiny.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Appear weak when you are strong, and strong when you are weak.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
