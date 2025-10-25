@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I'd rather welcome change than cling to the past.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;To escape from the world means that one's mind is not concerned with the opinions of the world.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
