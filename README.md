@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found.&quot;</em> <br>
-— Pema Chodron
+<em>&quot;The time is always right to do what is right.&quot;</em> <br>
+— Martin Luther King, Jr.
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
