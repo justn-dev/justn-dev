@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;Most people spend more time and energy going around problems than in trying to solve them. &quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
