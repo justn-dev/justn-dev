@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Manifest plainness, embrace simplicity, reduce selfishness, have few desires.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face &amp; solve them now!&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
