@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Freedom itself demands discomfort.&quot;</em> <br>
-— Mark Manson
+<em>&quot;Greatest success comes just one step beyond the point at which defeat overtakes you.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
