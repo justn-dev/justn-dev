@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Among the things you can give and still keep are your word, a smile, and a grateful heart.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Care about what other people think and you will always be their prisoner.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
