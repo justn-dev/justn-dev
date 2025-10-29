@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;The real measure of your wealth is how much you'd be worth if you lost all your money.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
