@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you genuinely want something, don't wait for it - teach yourself.&quot;</em> <br>
-— Gurbaksh Chahal
+<em>&quot;Experience is simply the name we give our mistakes. &quot;</em> <br>
+— Oscar Wilde
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
