@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Have the fearless attitude of a hero and the loving heart of a child.&quot;</em> <br>
-— Soyen Shaku
+<em>&quot;If you don't like something change it; if you can't change it, change the way you think about it.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
