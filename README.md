@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;Misfortune shows those who are not really friends.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
