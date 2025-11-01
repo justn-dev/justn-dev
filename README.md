@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life was meant to be lived, and curiosity must be kept alive. One must never, for whatever reason, turn his back on life.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;The joy of life comes from our encounters with new experiences.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
