@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you make a choice, you change the future.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Life was meant to be lived, and curiosity must be kept alive. One must never, for whatever reason, turn his back on life.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
