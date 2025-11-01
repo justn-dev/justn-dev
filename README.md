@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The world is changed by your example, not by your opinion.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;The man who moved the mountain was the one who began carrying away the smallest stones.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
