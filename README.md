@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;Life is ours to be spent, not to be saved. &quot;</em> <br>
+— D. H. Lawrence
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
