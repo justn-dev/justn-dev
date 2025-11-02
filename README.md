@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You talk when you cease to be at peace with your thoughts.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;Charms strike the sight, but merit wins the soul.&quot;</em> <br>
+— Alexander Pope
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
