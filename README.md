@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wrong does not cease to be wrong because the majority share in it.&quot;</em> <br>
-— Leo Tolstoy
+<em>&quot;No idea, no matter how good, will work if it doesn't get used.&quot;</em> <br>
+— Peter A. Cohen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
