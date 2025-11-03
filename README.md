@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying.&quot;</em> <br>
-— Ming-Dao Deng
+<em>&quot;To know your Enemy, you must become your Enemy.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
