@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Life does not get better by chance, it gets better by change.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
