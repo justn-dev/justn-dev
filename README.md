@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not ignore the passion that burns in you. Spend time to discover your gift.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Be like a postage stamp. Stick to it until you get there.&quot;</em> <br>
+— Bob Proctor
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
