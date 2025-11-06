@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The world would go on even without you. Don't take yourself so seriously.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;It is your attitude, not your aptitude, that determines your altitude.&quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
