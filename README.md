@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;I didn't get there by wishing for it or hoping for it, but by working for it.&quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
