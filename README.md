@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The pursuit of mastery bears gifts. &quot;</em> <br>
-— Gary Keller
+<em>&quot;Life and the simple beauty of it is too good to pass up.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
