@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The goal is not to show how great you are to others, but how vulnerable you are to yourself.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;If anything is worth doing, do it with all your heart.&quot;</em> <br>
+— Buddha
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
