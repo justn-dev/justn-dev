@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's the job that's never started that takes the longest to finish.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;Till it has loved, no man or woman can become itself.&quot;</em> <br>
+— Emily Dickinson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
