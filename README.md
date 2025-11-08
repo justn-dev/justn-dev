@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Failure is acceptable. Not trying is a whole different ball park.&quot;</em> <br>
-— Michael Jordan
+<em>&quot;Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition.&quot;</em> <br>
+— John Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
