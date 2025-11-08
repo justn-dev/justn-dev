@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One is never afraid of the unknown; one is afraid of the known coming to an end.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
