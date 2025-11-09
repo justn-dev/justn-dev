@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace.&quot;</em> <br>
-— Earl Nightingale
+<em>&quot;If you want to know what God thinks about money just look at the people He gives it to.&quot;</em> <br>
+— Alexander Pope
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
