@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Give out what you most want to come back.&quot;</em> <br>
+<em>&quot;The purpose of life is the life of purpose.&quot;</em> <br>
 — Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
