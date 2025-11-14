@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The greatest work that kindness does to others is that it makes them kind themselves.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;Wisdom is doing now what you are going to be happy with later on.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
