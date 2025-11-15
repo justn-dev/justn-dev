@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. &quot;</em> <br>
-— Franz Kafka
+<em>&quot;It is the power of thought that gives man power over nature.&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
