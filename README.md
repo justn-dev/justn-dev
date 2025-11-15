@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In the long run, the sharpest weapon of all is a kind and gentle spirit.&quot;</em> <br>
-— Anne Frank
+<em>&quot;He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
