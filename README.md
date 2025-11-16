@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Keep your dreams, you never know when you might need them.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;It's not what happens to you, but how you react to it that matters.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
