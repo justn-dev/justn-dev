@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success does not consist in never making mistakes but in never making the same one a second time.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Make yourself so useful to other people, that they think you are irreplaceable.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
