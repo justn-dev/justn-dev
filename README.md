@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't let your learning lead to knowledge. Let your learning lead to action.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;He who laughs at himself never runs out of things to laugh at.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
