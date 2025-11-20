@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.&quot;</em> <br>
-— Mark Twain
+<em>&quot;It's not what happens to you, but how you react to it that matters.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
