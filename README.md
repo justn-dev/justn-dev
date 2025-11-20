@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The longer we dwell on our misfortunes, the greater is their power to harm us.&quot;</em> <br>
-— Voltaire
+<em>&quot;To improve is to change, so to be perfect is to change often.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
