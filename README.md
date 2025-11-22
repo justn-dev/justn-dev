@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What keeps life fascinating is the constant creativity of the soul.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Don't let the past steal your present.&quot;</em> <br>
+— Cherralea Morgen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
