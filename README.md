@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Many roads lead to the path, but basically there are only two: reason and practice. &quot;</em> <br>
-— Bodhidharma
+<em>&quot;It's OK to have your eggs in one basket as long as you control what happens to that basket.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
