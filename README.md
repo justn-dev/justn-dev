@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Walking with a friend in the dark is better than walking alone in the light.&quot;</em> <br>
-— Helen Keller
+<em>&quot;Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility.&quot;</em> <br>
+— Sigmund Freud
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
