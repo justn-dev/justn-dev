@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Courage Is a Love Affair with the Unknown&quot;</em> <br>
-— Osho
+<em>&quot;Men are equal; it is not birth but virtue that makes the difference.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
