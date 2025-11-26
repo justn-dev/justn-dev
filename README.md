@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;On the other side of the clouds is a bright blue sky.&quot;</em> <br>
-— Unknown
+<em>&quot;Dream big and dare to fail.&quot;</em> <br>
+— Norman Vaughan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
