@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life without love is like a tree without blossoms or fruit.&quot;</em> <br>
-— Kahlil Gibran
+<em>&quot;If you set your goals ridiculously high and its a failure, you will fail above everyone elses success.&quot;</em> <br>
+— James Cameron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
