@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Change will not come if we wait for some other person, or if we wait for some other time.&quot;</em> <br>
-— Barack Obama
+<em>&quot;The secret of success lies not in doing your own work, but in recognizing the right man to do it.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
