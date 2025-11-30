@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face &amp; solve them now!&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Real growth comes through intense, difficult, and challenging situations.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
