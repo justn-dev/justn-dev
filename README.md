@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;With self-discipline, almost anything is possible.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Where words fail, music speaks.&quot;</em> <br>
+— Hans Christian Andersen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
