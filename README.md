@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you can't feed a hundred people, then feed just one.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;If the grass is greener on the other side, maybe that's because you're not taking good care of your grass.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
