@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not pray for an easy life, pray for the strength to endure a difficult one.  &quot;</em> <br>
-— Bruce Lee
+<em>&quot;It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
