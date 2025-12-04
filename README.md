@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Boldness makes even the smallest animal dangerous.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
