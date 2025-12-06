@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To create more positive results in your life, replace 'if only' with 'next time'.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;All cruelty springs from weakness.  &quot;</em> <br>
+— Seneca
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
