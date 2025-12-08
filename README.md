@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Because of your smile, you make life more beautiful.&quot;</em> <br>
-— Thich Nhat Hanh
+<em>&quot;Anyone who wants to achieve a dream must stay strong, focused and steady.&quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
