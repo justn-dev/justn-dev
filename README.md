@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Some of us learn from other people's mistakes and the rest of us have to be other people.  &quot;</em> <br>
-— Zig Ziglar
+<em>&quot;The trouble with most of us is that we'd rather be ruined by praise than saved by criticism.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
