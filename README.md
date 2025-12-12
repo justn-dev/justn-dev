@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every man gotta right to decide his own destiny.&quot;</em> <br>
-— Bob Marley
+<em>&quot;Sometimes you have to shut your eyes, so you can see the real beauty.&quot;</em> <br>
+— Kilian Jornet
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
