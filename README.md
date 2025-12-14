@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success does not consist in never making mistakes but in never making the same one a second time.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Incredible change happens in your life when you decide to take control of what you do have power over instead of craving control over what you don't.&quot;</em> <br>
+— Steve Maraboli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
