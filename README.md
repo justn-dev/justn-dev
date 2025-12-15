@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Exceptional thinkers ignore their critics and go about their business making history.&quot;</em> <br>
-— John Eliot
+<em>&quot;Creative people are often found either disagreeable or intimidating by mediocrities.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
