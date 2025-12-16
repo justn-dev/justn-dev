@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The constant assertion of belief is an indication of fear.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;Everything you've ever wanted is on the other side of fear.&quot;</em> <br>
+— George Addair
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
