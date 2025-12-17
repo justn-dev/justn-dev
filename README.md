@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A good teacher opens the door for you, but you must enter the room by yourself.&quot;</em> <br>
+<em>&quot;Live calmly. The time will come when the flowers bloom by themselves.&quot;</em> <br>
 — Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
