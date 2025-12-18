@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;FOCUS - Follow One Course Until Successful&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
