@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in.&quot;</em> <br>
-— Virginia Woolf
+<em>&quot;Only he who has no use for the empire is fit to be entrusted with it.&quot;</em> <br>
+— Zhuangzi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
