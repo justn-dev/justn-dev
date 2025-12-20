@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I know of only one duty, and that is to love.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;It's wise to tell the truth. It's even wiser to tell it kindly.&quot;</em> <br>
+— Maxime Lagace
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
