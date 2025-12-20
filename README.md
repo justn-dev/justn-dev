@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Truth is exact correspondence with reality. &quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
