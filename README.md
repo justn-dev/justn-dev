@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;Time goes from present to past.&quot;</em> <br>
+— Shunryu Suzuki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
