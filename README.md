@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;From the errors of others, a wise man corrects his own.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;If you don't know, the thing to do is not to get scared, but to learn.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
