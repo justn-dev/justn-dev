@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can have the mind or you can have the moment.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;From the errors of others, a wise man corrects his own.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
