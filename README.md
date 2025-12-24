@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love.&quot;</em> <br>
-— John Lennon
+<em>&quot;Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
