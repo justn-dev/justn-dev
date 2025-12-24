@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Rivers know this: there is no hurry. We shall get there some day.&quot;</em> <br>
-— A.A. Milne
+<em>&quot;The older you get the stronger the wind gets - and it's always in your face.&quot;</em> <br>
+— Pablo Picasso
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
