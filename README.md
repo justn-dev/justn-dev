@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People tend to complicate their own lives, as if living weren't already complicated enough.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;A friend to all is a friend to none.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
