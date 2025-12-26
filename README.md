@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. &quot;</em> <br>
-— Lao Tzu
+<em>&quot;Great ones are willing to get burned time and again as they sharpen their swords in the fire.&quot;</em> <br>
+— Josh Waitzkin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
