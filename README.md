@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less.&quot;</em> <br>
-— Dan Millman
+<em>&quot;For things to change, you have to change.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
