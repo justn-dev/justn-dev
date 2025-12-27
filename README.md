@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wherever you are is the entry point.&quot;</em> <br>
-— Kabir
+<em>&quot;All our dreams can come true, if we have the courage to pursue them.&quot;</em> <br>
+— Walt Disney
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
