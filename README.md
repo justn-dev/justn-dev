@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Instead of being intimidated by the limitations, be inspired to find new ways around them.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;When you judge others, you do not define them, you define yourself.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
