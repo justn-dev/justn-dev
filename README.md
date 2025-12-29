@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you don't make things happen then things will happen to you.&quot;</em> <br>
-— Robert Collier
+<em>&quot;It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
