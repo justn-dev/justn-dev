@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Quality means doing it right when no one is looking.&quot;</em> <br>
-— Henry Ford
+<em>&quot;Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity.&quot;</em> <br>
+— Charles Spurgeon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
