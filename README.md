@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away.&quot;</em> <br>
-— John Lennon
+<em>&quot;Whatever your heart clings to and confides in, that is really your God.&quot;</em> <br>
+— Martin Luther
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
