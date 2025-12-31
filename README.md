@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A mistake is only an error, it becomes a mistake when you fail to correct it.&quot;</em> <br>
-— John Lennon
+<em>&quot;The busy man is never wise and the wise man is never busy.&quot;</em> <br>
+— Lin Yutang
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
