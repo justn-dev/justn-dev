@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Study logic and math, because once you've mastered them, you won't fear any book.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;You need to be doing fewer things for more effect instead of doing more things with side effects.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
