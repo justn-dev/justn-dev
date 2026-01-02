@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Sometimes you have to lose all you have to find out who you truly are.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
