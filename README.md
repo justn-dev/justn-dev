@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.&quot;</em> <br>
-— Dr. Seuss
+<em>&quot;Life is and will ever remain an equation incapable of solution, but it contains certain known factors. &quot;</em> <br>
+— Nikola Tesla
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
