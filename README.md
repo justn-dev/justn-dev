@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Instead of worrying about what you cannot control, shift your energy to what you can create.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;A wise man can learn more from a foolish question than a fool can learn from a wise answer.  &quot;</em> <br>
+— Bruce Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
