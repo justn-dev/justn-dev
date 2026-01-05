@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Change is inevitable but personal growth is a choice.&quot;</em> <br>
-— Bob Proctor
+<em>&quot;The joy of life comes from our encounters with new experiences.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
