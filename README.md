@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Knowing yourself is the beginning of all wisdom.&quot;</em> <br>
-— Aristotle
+<em>&quot;Follow the man who seeks the truth; run from the man who has found it.&quot;</em> <br>
+— Vaclav Havel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
