@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight.&quot;</em> <br>
-— Benjamin Franklin
+<em>&quot;Never spend your money before you have earned it.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
