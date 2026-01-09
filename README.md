@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you repeat a mistake, it is not a mistake anymore: it is a decision.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;The more knowledge you have, the more you're free to rely on your instincts.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
