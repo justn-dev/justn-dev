@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Change is never easy, but always possible.&quot;</em> <br>
-— Barack Obama
+<em>&quot;If you can change your mind, you can change your life.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
