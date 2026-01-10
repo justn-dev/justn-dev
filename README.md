@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is never too late to be what you might have been.&quot;</em> <br>
-— George Eliot
+<em>&quot;Enjoy when you can, and endure when you must.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
