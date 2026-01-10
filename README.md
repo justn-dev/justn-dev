@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more you take responsibility for your past and present, the more you are able to create the future you seek.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The more you praise and celebrate your life, the more there is in life to celebrate. &quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
