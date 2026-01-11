@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Character is doing what you don't want to do but know you should do.&quot;</em> <br>
-— Joyce Meyer
+<em>&quot;If I cannot do great things. I can do small things in a great way.&quot;</em> <br>
+— Martin Luther King, Jr.
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
