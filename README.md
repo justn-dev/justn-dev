@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Things turn out best for the people who make the best of the way things turn out.&quot;</em> <br>
-— John Wooden
+<em>&quot;When you know what you want, and want it bad enough, you will find a way to get it.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
