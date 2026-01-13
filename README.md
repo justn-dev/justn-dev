@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Listening well is as powerful as talking well, and is also as essential to true conversation.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Persistence is very important. You should not give up unless you are forced to give up.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
