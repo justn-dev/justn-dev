@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If I can stop one heart from breaking, I shall not live in vain.&quot;</em> <br>
-— Emily Dickinson
+<em>&quot;Growing up is losing some illusions, in order to acquire others.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
