@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.&quot;</em> <br>
-— Pema Chodron
+<em>&quot;Make each day a new horizon.&quot;</em> <br>
+— Christopher McCandless
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
