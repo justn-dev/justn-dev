@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A heart is not judged by how much you love, but by how much you are loved by others.&quot;</em> <br>
-— Judy Garland
+<em>&quot;What you get by achieving your goals is not as important as what you become by achieving your goals.&quot;</em> <br>
+— Henry David Thoreau
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
