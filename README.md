@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In order to attain the impossible, one must attempt the absurd.&quot;</em> <br>
-— Miguel de Cervantes
+<em>&quot;It is not titles that honour men, but men that honour titles.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
