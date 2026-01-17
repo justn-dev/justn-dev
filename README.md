@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What you get by achieving your goals is not as important as what you become by achieving your goals.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;You cannot find peace by avoiding life.&quot;</em> <br>
+— Virginia Woolf
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
