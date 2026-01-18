@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Unless you're ashamed of yourself now and then, you're not honest.&quot;</em> <br>
-— William Faulkner
+<em>&quot;Truth is like the sun. You can shut it out for a time, but it ain't going away.&quot;</em> <br>
+— Elvis Presley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
