@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through.&quot;</em> <br>
-— Jonathan Swift
+<em>&quot;Life has the name of life, but in reality it is death.&quot;</em> <br>
+— Heraclitus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
