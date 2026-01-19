@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The less people know, the more stubbornly they know it.&quot;</em> <br>
+— Osho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
