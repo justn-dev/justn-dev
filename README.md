@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To do two things at once is to do neither.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;Show me a hero, and I'll write you a tragedy.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
