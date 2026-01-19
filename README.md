@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you do not conquer self, you will be conquered by self.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
