@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't spend major time on minor things.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  &quot;</em> <br>
+— Wayne Dyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
