@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The traveler sees what he sees. The tourist sees what he has come to see.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;If you do not push the boundaries, you will never know where they are.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
