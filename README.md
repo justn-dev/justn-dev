@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Riches don't make a man rich, they only make him busier.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;If everyone is moving forward together, then success takes care of itself.&quot;</em> <br>
+— Henry Ford
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
