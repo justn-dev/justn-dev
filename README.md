@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;All our dreams can come true, if we have the courage to pursue them.&quot;</em> <br>
-— Walt Disney
+<em>&quot;Anxiety is the dizziness of freedom.&quot;</em> <br>
+— Soren Kierkegaard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
