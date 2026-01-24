@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Knowing is not enough, we must apply. Willing is not enough, we must do.  &quot;</em> <br>
-— Bruce Lee
+<em>&quot;The man who does not value himself, cannot value anything or anyone.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
