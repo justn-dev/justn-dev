@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Always do what is right. It will gratify half of mankind and astound the other.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Some people feel the rain. Others just get wet. &quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
