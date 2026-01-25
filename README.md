@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Remember that the best relationship is one in which your love for each other exceeds your need for each other.&quot;</em> <br>
-— Dalai Lama
+<em>&quot;Just because something isn't a lie does not mean that it isn't deceptive.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
