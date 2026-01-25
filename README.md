@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If light is in your heart, you will find your way home.  &quot;</em> <br>
-— Rumi
+<em>&quot;There are no limitations to the mind except those we acknowledge...&quot;</em> <br>
+— Napoleon Hill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
