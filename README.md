@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be patient and calm; no one can catch fish in anger.&quot;</em> <br>
-— Herbert Hoover
+<em>&quot;The soul should always stand ajar, ready to welcome the ecstatic experience.&quot;</em> <br>
+— Emily Dickinson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
