@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The soul should always stand ajar, ready to welcome the ecstatic experience.&quot;</em> <br>
-— Emily Dickinson
+<em>&quot;There are more people who wish to be loved than there are who are willing to love. &quot;</em> <br>
+— Nicolas Chamfort
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
