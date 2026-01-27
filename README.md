@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The problem happens when we have multiple desires. When we have fuzzy desires. When we want to do ten different things and we're not clear about which is the one we care about.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;I've always tried to go a step past wherever people expected me to end up.&quot;</em> <br>
+— Beverly Sills
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
