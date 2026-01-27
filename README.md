@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;The important thing is not what one is born with but what use one makes of that equipment.&quot;</em> <br>
+— Alfred Adler
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
