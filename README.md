@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The most difficult times for many of us are the ones we give ourselves.&quot;</em> <br>
-— Pema Chodron
+<em>&quot;Conscience is a man's compass. &quot;</em> <br>
+— Vincent van Gogh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
