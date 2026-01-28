@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;If you care about someone enough, you'll always be there for them no matter what.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
