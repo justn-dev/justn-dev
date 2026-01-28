@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If your mind is empty, it is always ready for anything, it is open to everything.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;Magic is believing in yourself, if you can do that, you can make anything happen.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
