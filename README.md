@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If what you're doing is not your passion, you have nothing to lose.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;Sometimes out of your biggest misery, comes your greatest gain.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
