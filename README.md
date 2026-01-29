@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Ideas do not reach perfection in a day, no matter how much study is put upon them.&quot;</em> <br>
-— Alexander Graham Bell
+<em>&quot;Curiosity is the most powerful thing you own.&quot;</em> <br>
+— James Cameron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
