@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;My instinct is always to seek out challenges as opposed to avoiding them.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;If what you're doing is not your passion, you have nothing to lose.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
