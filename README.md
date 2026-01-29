@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;If you practiced for the day, then you have won. If you were lazy for the day, then you have lost.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
