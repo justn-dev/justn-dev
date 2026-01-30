@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If fear is too strong, the genius is suppressed.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;No grand idea was ever born in a conference, but a lot of foolish ideas have died there.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
