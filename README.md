@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A single act of kindness throws out roots in all directions, and the roots spring up and make new trees.&quot;</em> <br>
-— Amelia Earhart
+<em>&quot;The source of a true smile is an awakened mind.&quot;</em> <br>
+— Thich Nhat Hanh
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
