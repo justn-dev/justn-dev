@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Enlightenment is intimacy with all things.&quot;</em> <br>
-— Dogen
+<em>&quot;Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
