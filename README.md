@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The power of man has grown in every sphere, except over himself.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;When the fish is caught we pay no more attention to the trap.&quot;</em> <br>
+— Huang Po
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
