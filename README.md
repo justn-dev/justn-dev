@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;Expect the best of yourself, and then do what is necessary to make it a reality.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
