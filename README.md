@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Rivers know this: there is no hurry. We shall get there some day.&quot;</em> <br>
-— A.A. Milne
+<em>&quot;The big thing is to make a winning effort. I'm not obsessed with wins.&quot;</em> <br>
+— Morgan Wootten
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
