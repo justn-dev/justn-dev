@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;If you done it, it ain't bragging.&quot;</em> <br>
+— Walt Whitman
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
