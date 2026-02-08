@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We can know only that we know nothing. And that is the highest degree of human wisdom.&quot;</em> <br>
-— Leo Tolstoy
+<em>&quot;I don't pretend to know everything; I just only speak on matters I know I'll win.&quot;</em> <br>
+— Criss Jami
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
