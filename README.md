@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is trying things to see if they work.&quot;</em> <br>
-— Ray Bradbury
+<em>&quot;The world makes way for the man who knows where he is going.&quot;</em> <br>
+— Ralph Waldo Emerson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
