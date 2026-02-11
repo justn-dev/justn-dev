@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Any fool can turn a blind eye but who knows what the ostrich sees in the sand.&quot;</em> <br>
-— Samuel Beckett
+<em>&quot;Difficult roads often lead to beautiful destinations.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
