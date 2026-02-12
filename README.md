@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound.&quot;</em> <br>
-— James Allen
+<em>&quot;Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away.&quot;</em> <br>
+— John Lennon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
