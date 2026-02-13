@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;If you see a get rich quick scheme, that's someone else trying to get rich off of you.&quot;</em> <br>
+— Naval Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
