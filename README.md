@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;There are no shortcuts to any place worth going. &quot;</em> <br>
+— Beverly Sills
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
