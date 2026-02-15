@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;A man is great not because he hasn't failed; a man is great because failure hasn't stopped him.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
