@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The future is not a gift. It is an achievement.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
