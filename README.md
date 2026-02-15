@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is achieved and maintained by those who try and keep trying. &quot;</em> <br>
-— W. Clement Stone
+<em>&quot;The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you.&quot;</em> <br>
+— Sonia Ricotti
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
