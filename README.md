@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;an action committed in anger is an action doomed to failure. &quot;</em> <br>
-— Genghis Khan
+<em>&quot;The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
