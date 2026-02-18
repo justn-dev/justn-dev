@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A man that flies from his fear may find that he has only taken a short cut to meet it.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;Remember, today is the tomorrow you worried about yesterday.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
