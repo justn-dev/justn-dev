@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I cannot make my days longer so I strive to make them better.&quot;</em> <br>
-— Henry David Thoreau
+<em>&quot;Let us rather run the risk of wearing out than rusting out.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
