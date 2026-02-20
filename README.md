@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wise people, even though all laws were abolished, would still lead the same life.&quot;</em> <br>
-— Aristophanes
+<em>&quot;Progress is impossible without change, and those who cannot change their minds cannot change anything.&quot;</em> <br>
+— George Bernard Shaw
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
