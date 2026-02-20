@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Understanding that rests in what it does not understand is the finest.&quot;</em> <br>
-— Zhuangzi
+<em>&quot;I believe that potential is unlimited - success depends on daring to act on dreams.   &quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
