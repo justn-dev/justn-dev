@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A comfort zone is a beautiful place, but nothing ever grows there.&quot;</em> <br>
-— Unknown
+<em>&quot;People who have goals succeed because they know where they're going. It's that simple.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
