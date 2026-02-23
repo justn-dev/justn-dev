@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life has more imagination than we carry in our dreams.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;I skate to where the puck is going to be, not where it has been.&quot;</em> <br>
+— Wayne Gretzky
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
