@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No man is happy unless he believes he is.&quot;</em> <br>
-— Publilius Syrus
+<em>&quot;Truth will always be truth, regardless of lack of understanding, disbelief or ignorance. &quot;</em> <br>
+— W. Clement Stone
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
