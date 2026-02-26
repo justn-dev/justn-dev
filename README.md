@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Give me six hours to chop down a tree and I will spend the first four sharpening the axe.&quot;</em> <br>
-— Abraham Lincoln
+<em>&quot;He who permits himself to tell a lie once, finds it much easier to do it the second time.&quot;</em> <br>
+— Thomas Jefferson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
