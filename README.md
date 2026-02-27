@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never argue with stupid people, they will drag you down to their level and then beat you with experience.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Everyone wants to go to Heaven, but no one wants to die.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
