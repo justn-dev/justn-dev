@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;My mind seems to have become a kind of machine for grinding general laws out of large collections of facts.&quot;</em> <br>
-— Charles Darwin
+<em>&quot;Let us rather run the risk of wearing out than rusting out.&quot;</em> <br>
+— Theodore Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
