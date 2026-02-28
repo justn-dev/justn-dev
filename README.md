@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy.&quot;</em> <br>
-— Elon Musk
+<em>&quot;Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some.&quot;</em> <br>
+— Charles Dickens
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
