@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;He will win who knows when to fight and when not to fight.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
