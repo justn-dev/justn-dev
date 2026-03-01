@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What lies behind us and what lies before us are tiny matters compared to what lies within us.&quot;</em> <br>
-— Ralph Waldo Emerson
+<em>&quot;That some achieve great success is proof to all that others can achieve it as well.&quot;</em> <br>
+— Abraham Lincoln
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
