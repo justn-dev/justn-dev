@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;The more you are motivated by Love, The more Fearless &amp; Free your action will be.&quot;</em> <br>
+— Dalai Lama
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
