@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on.&quot;</em> <br>
-— Criss Jami
+<em>&quot;A memory is a beautiful thing, it's almost a desire that you miss.&quot;</em> <br>
+— Gustave Flaubert
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
