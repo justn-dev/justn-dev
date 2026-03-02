@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The positive thinker sees the invisible, feels the intangible, and achieves the impossible.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;Courage Is a Love Affair with the Unknown&quot;</em> <br>
+— Osho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
