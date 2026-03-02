@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Pleasure is always derived from something outside you, whereas joy arises from within. &quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
