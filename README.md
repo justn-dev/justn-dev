@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Admire as much as you can. Most people do not admire enough.&quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;The positive thinker sees the invisible, feels the intangible, and achieves the impossible.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
