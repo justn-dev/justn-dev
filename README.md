@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is love and love is life.&quot;</em> <br>
-— Elvis Presley
+<em>&quot;I think self-awareness is probably the most important thing towards being a champion. &quot;</em> <br>
+— Billie Jean King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
