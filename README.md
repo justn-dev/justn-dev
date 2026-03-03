@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts.&quot;</em> <br>
-— Alfred Adler
+<em>&quot;People do not decide their futures, they decide their habits and their habits decide their futures.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
