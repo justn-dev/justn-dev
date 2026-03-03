@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The ladder of success is best climbed by stepping on the rungs of opportunity.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;You are the average of the five people you spend most time with.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
