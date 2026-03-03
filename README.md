@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. &quot;</em> <br>
+— Steve Jobs
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
