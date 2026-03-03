@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You can easily judge the character of a man by how he treats those who can do nothing for him.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;When something comes from within, when it is a part of you, you have no choice but to live it, to express it.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
