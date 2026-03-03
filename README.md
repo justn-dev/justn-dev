@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People do not decide their futures, they decide their habits and their habits decide their futures.&quot;</em> <br>
-— Gary Keller
+<em>&quot;It doesn't matter where you are coming from. All that matters is where you are going. &quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
