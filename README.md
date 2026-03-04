@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everything great that has ever happened to humanity has begun as a single thought in someone's mind.&quot;</em> <br>
-— Yanni
+<em>&quot;People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
