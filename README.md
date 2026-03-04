@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Knowing is not enough, we must apply. Willing is not enough, we must do.&quot;</em> <br>
-— Johann Wolfgang von Goethe
+<em>&quot;Everything great that has ever happened to humanity has begun as a single thought in someone's mind.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
