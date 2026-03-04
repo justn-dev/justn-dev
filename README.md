@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No valid plans for the future can be made by those who have no capacity for living now.&quot;</em> <br>
-— Alan Watts
+<em>&quot;Knowing is not enough, we must apply. Willing is not enough, we must do.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
