@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Determine never to be idle. No person will have occasion to complain of the want of time who never loses any.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;If we did all the things we are capable of, we would literally astound ourselves.&quot;</em> <br>
+— Thomas Edison
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
