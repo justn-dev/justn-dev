@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Make each day a new horizon.&quot;</em> <br>
-— Christopher McCandless
+<em>&quot;She who loves roses must be patient and not cry out when she is pierced by thorns.&quot;</em> <br>
+— Kenji Miyazawa
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
