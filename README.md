@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you are patient in one moment of anger, you will escape a hundred days of sorrow. &quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
