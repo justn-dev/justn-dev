@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head.&quot;</em> <br>
-— Eric Hoffer
+<em>&quot;No man is free who is not master of himself.&quot;</em> <br>
+— Epictetus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
