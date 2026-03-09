@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A random act of kindness, no matter how small, can make a tremendous impact on someone else's life.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Every day passes whether you participate or not.&quot;</em> <br>
+— Ming-Dao Deng
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
