@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Tradition is the illusion of permanence. &quot;</em> <br>
+— Woody Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
