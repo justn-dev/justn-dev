@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Others have seen what is and asked why. I have seen what could be and asked why not&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;Anything you may hold firmly in your imagination can be yours.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
