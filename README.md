@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A hopeless man is a very desperate and dangerous man, almost a dead man.&quot;</em> <br>
-— Robert F. Kennedy
+<em>&quot;Your world is a living expression of how you are using and have used your mind.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
