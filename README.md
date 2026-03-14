@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There are no secrets to success. It is the result of preparation, hard work, learning from failure.&quot;</em> <br>
-— Colin Powell
+<em>&quot;What the caterpillar calls the end of the world, the master calls a butterfly.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
