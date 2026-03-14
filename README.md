@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What the caterpillar calls the end of the world, the master calls a butterfly.&quot;</em> <br>
-— Richard Bach
+<em>&quot;The more often a stupidity is repeated, the more it gets the appearance of wisdom.&quot;</em> <br>
+— Voltaire
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
