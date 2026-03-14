@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right.&quot;</em> <br>
-— Sonia Ricotti
+<em>&quot;Failure means you've now learned another valuable lesson that pushes you one step closer to success.&quot;</em> <br>
+— Steve Harvey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
