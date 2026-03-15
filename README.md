@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Peace if possible, truth at all costs.&quot;</em> <br>
-— Martin Luther
+<em>&quot;Life's too mysterious to take too serious.&quot;</em> <br>
+— Mary Engelbreit
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
