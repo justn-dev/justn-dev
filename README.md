@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Mistakes are always forgivable, if one has the courage to admit them. &quot;</em> <br>
-— Bruce Lee
+<em>&quot;There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return.&quot;</em> <br>
+— Nelson Mandela
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
