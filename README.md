@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Passion is born deaf and dumb.&quot;</em> <br>
-— Honore de Balzac
+<em>&quot;What is planted in each person's soul will sprout.  &quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
