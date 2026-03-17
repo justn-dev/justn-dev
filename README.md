@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If fear is too strong, the genius is suppressed.&quot;</em> <br>
-— Robert Kiyosaki
+<em>&quot;Courage is knowing what not to fear.&quot;</em> <br>
+— Plato
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
