@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane.&quot;</em> <br>
-— Criss Jami
+<em>&quot;The best time to plant a tree was 20 years ago. The second best time is now.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
