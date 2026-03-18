@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no greater agony than bearing an untold story inside you.&quot;</em> <br>
-— Maya Angelou
+<em>&quot;A flower falls, even though we love it; and a weed grows, even though we do not love it.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
