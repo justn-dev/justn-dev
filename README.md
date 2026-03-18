@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play.&quot;</em> <br>
-— Alan Watts
+<em>&quot;Everyone is a moon, and has a dark side which he never shows to anybody.&quot;</em> <br>
+— Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
