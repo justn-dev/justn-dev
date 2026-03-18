@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everyone is a moon, and has a dark side which he never shows to anybody.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Desire for the fruits of work must never be your motive in working.&quot;</em> <br>
+— Bhagavad Gita
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
