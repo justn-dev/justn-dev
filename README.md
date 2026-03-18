@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play.&quot;</em> <br>
+— Alan Watts
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
