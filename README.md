@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Talk to someone about themselves and they'll listen for hours.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;In youth we run into difficulties. In old age difficulties run into us. &quot;</em> <br>
+— Beverly Sills
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
