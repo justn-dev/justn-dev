@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Open your eyes and look within. Are you satisfied with the life you're living?&quot;</em> <br>
-— Bob Marley
+<em>&quot;Talk to someone about themselves and they'll listen for hours.&quot;</em> <br>
+— Dale Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
