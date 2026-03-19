@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;In youth we run into difficulties. In old age difficulties run into us. &quot;</em> <br>
-— Beverly Sills
+<em>&quot;If you hang out with chickens, you're going to cluck and if you hang out with eagles, you're going to fly.&quot;</em> <br>
+— Steve Maraboli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
