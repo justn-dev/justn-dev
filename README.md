@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The meaning of life is just to be alive. It is so plain and so obvious and so simple.&quot;</em> <br>
-— Alan Watts
+<em>&quot;Always focus on the front windshield and not the rear view mirror.&quot;</em> <br>
+— Colin Powell
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
