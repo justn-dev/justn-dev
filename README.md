@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Always focus on the front windshield and not the rear view mirror.&quot;</em> <br>
-— Colin Powell
+<em>&quot;To be in harmony with the wholeness of things is not to have anxiety over imperfections.&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
