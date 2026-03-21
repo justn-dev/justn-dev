@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can.&quot;</em> <br>
-— Norman Vincent Peale
+<em>&quot;There are no second chances in life, except to feel remorse.&quot;</em> <br>
+— Carlos Ruiz Zafon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
