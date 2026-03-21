@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There are no second chances in life, except to feel remorse.&quot;</em> <br>
-— Carlos Ruiz Zafon
+<em>&quot;Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do.&quot;</em> <br>
+— Nelson Mandela
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
