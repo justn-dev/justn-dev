@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Would you rather live your life according to the approval of others or aligned with your truth and your dreams?&quot;</em> <br>
-— Robin Sharma
+<em>&quot;By changing nothing, nothing changes.&quot;</em> <br>
+— Celestine Chua
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
