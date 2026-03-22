@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;I'm an optimist by choice not by stupidity.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
