@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is during our darkest moments that we must focus to see the light.&quot;</em> <br>
-— Aristotle
+<em>&quot;Awakening is possible only for those who seek it and want it.&quot;</em> <br>
+— G.I. Gurdjieff
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
