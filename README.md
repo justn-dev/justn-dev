@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Many a man has failed because he had his wishbone where his backbone should have been.&quot;</em> <br>
-— Ronald Reagan
+<em>&quot;Faith is taking the first step even when you don't see the whole staircase.&quot;</em> <br>
+— Martin Luther King, Jr.
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
