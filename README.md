@@ -1,4 +1,4 @@
-### Good night 😴
+### Good morning ☀️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more knowledge you have, the more you're free to rely on your instincts.&quot;</em> <br>
-— Arnold Schwarzenegger
+<em>&quot;You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being.&quot;</em> <br>
+— Anita Krizzan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
