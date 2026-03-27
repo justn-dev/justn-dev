@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Anyone telling you it's pointless to share your perspective is sharing their perspective.&quot;</em> <br>
-— Jack Butcher
+<em>&quot;It's OK to have your eggs in one basket as long as you control what happens to that basket.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
