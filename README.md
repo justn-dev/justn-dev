@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you.&quot;</em> <br>
-— Jeffrey Gitomer
+<em>&quot;Nothing is easier than fault finding.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
