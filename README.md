@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Failure is simply the opportunity to begin again, this time more intelligently.&quot;</em> <br>
-— Henry Ford
+<em>&quot;Men do not attract which they want but that which they are.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
