@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;You become stronger with every problem you face and every obstacle you overcome.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;The world is changed by your example, not by your opinion.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
