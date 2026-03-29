@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The purpose of life is the expansion of happiness.&quot;</em> <br>
-— Deepak Chopra
+<em>&quot;He is richest who is content with the least, for content is the wealth of nature.&quot;</em> <br>
+— Socrates
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
