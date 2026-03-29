@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The pursuit of mastery bears gifts. &quot;</em> <br>
-— Gary Keller
+<em>&quot;Treat every moment as your last. It is not preparation for something else.&quot;</em> <br>
+— Shunryu Suzuki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
