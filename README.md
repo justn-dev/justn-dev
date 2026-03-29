@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;She who loves roses must be patient and not cry out when she is pierced by thorns.&quot;</em> <br>
-— Kenji Miyazawa
+<em>&quot;Until you change how you get things done, you'll never know what works best.&quot;</em> <br>
+— Roy T. Bennett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
