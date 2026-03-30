@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed.&quot;</em> <br>
-— Lily Tomlin
+<em>&quot;You must welcome change as the rule but not as your ruler. &quot;</em> <br>
+— Denis Waitley
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
