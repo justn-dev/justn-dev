@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Successful people appreciate where they have come from, but they don't let their past set the tone for their future.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;It is our choices that show what we truly are, far more than our abilities.&quot;</em> <br>
+— Albus Dumbledore
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
