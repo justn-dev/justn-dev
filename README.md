@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Every artist dips his brush in his own soul, and paints his own nature into his pictures.&quot;</em> <br>
-— Henry Ward Beecher
+<em>&quot;To be totally at leisure for one day is to be immortal for one day. &quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
