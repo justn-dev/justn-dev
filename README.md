@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whenever you find yourself on the side of the majority, it is time to reform.&quot;</em> <br>
+<em>&quot;Courage is resistance to fear, mastery of fear - not absence of fear.&quot;</em> <br>
 — Mark Twain
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
