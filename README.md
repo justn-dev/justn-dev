@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Talk to someone about themselves and they'll listen for hours.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;The greatest of all mistakes is to do nothing because you think you can only do a little.  &quot;</em> <br>
+— Zig Ziglar
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
