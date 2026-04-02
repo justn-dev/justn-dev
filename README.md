@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;Imagination is everything. It is the preview of life's coming attractions.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
