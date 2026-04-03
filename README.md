@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Each day provides it's own gifts.&quot;</em> <br>
-— Marcus Aurelius
+<em>&quot;What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
