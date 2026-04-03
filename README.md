@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?&quot;</em> <br>
-— Sathya Sai Baba
+<em>&quot;The secret of life isn't what happens to you, but what you do with what happens to you.&quot;</em> <br>
+— Norman Vincent Peale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
