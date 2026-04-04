@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;An ounce of performance is worth pounds of promises.&quot;</em> <br>
+<em>&quot;You only live once, but if you do it right, once is enough.&quot;</em> <br>
 — Mae West
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
