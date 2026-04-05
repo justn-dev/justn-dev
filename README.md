@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.&quot;</em> <br>
-— Bob Marley
+<em>&quot;If you do not push the boundaries, you will never know where they are.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
