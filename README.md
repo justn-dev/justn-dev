@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Hardly anybody recognizes the most significant moments of their life at the time they happen.&quot;</em> <br>
-— W.P. Kinsella
+<em>&quot;If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes.&quot;</em> <br>
+— Andrew Carnegie
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
