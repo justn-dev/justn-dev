@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A creative man is motivated by the desire to achieve, not by the desire to beat others.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;If you are unable to find the truth right where you are, where else do you expect to find it?&quot;</em> <br>
+— Dogen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
