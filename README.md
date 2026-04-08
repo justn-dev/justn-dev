@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Love is merely the name for the desire and pursuit of the whole.&quot;</em> <br>
-— Aristophanes
+<em>&quot;Avoiding danger is no safer in the long run than exposure.&quot;</em> <br>
+— Helen Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
