@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Without the rain there would be no rainbow.&quot;</em> <br>
-— Gilbert Chesterton
+<em>&quot;Best be yourself, imperial, plain, and true.&quot;</em> <br>
+— Robert Browning
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
