@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Not engaging in ignorance is wisdom. &quot;</em> <br>
-— Bodhidharma
+<em>&quot;To live outside the law, you must be honest. &quot;</em> <br>
+— Bob Dylan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
