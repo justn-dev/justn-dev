@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is not final, failure is not fatal: it is the courage to continue that counts.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;The secret of life is to fall seven times and to get up eight times.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
