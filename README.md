@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The more I want to get something done, the less I call it work.&quot;</em> <br>
-— Richard Bach
+<em>&quot;It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have.&quot;</em> <br>
+— Gary Keller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
