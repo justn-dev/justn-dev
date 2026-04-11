@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;Not all those who wander are lost.&quot;</em> <br>
+— J.R.R. Tolkien
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
