@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The soul is neither born, and nor does it die.&quot;</em> <br>
-— Bhagavad Gita
+<em>&quot;Some people don't like change, but you need to embrace change if the alternative is disaster.&quot;</em> <br>
+— Elon Musk
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
