@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you truly love Nature, you will find beauty everywhere. &quot;</em> <br>
-— Vincent van Gogh
+<em>&quot;Leaders think and talk about solutions. Followers think and talk about the problems.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
