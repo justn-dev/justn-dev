@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It doesn't matter how much you want. What really matters is how much you want it.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;One beam, no matter how big, cannot support an entire house on its own.&quot;</em> <br>
+— Chinese Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
