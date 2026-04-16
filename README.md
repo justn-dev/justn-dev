@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds.&quot;</em> <br>
-— Barack Obama
+<em>&quot;The secret of life is to fall seven times and to get up eight times.&quot;</em> <br>
+— Paulo Coelho
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
