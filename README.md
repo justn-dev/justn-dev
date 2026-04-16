@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Keep your eyes on the stars, but remember to keep your feet on the ground.&quot;</em> <br>
-— Theodore Roosevelt
+<em>&quot;Change is hard at first, messy in the middle and gorgeous at the end.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
