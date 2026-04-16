@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward.&quot;</em> <br>
-— Unknown
+<em>&quot;Think and wonder, wonder and think.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
