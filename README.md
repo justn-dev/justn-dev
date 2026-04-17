@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We must accept finite disappointment, but never lose infinite hope.&quot;</em> <br>
-— Martin Luther King, Jr.
+<em>&quot;Formal education will make you a living, self-education will make you a fortune.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
