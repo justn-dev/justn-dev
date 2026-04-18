@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success comes to those who become success conscious.&quot;</em> <br>
-— Napoleon Hill
+<em>&quot;Loyalty and friendship are the most precious possessions a man can have.&quot;</em> <br>
+— Herbert Hoover
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
