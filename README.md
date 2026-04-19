@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Follow your heart, listen to your inner voice, stop caring about what others think.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;One of the first signs of the beginning of understanding is the wish to die. &quot;</em> <br>
+— Franz Kafka
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
