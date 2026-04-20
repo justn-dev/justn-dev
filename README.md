@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Dreams provide nourishment for the soul, just as a meal does for the body.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;One mistake does not have to rule a person's entire life.&quot;</em> <br>
+— Joyce Meyer
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
