@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Man must use what he has, not hope for what is not.&quot;</em> <br>
-— G.I. Gurdjieff
+<em>&quot;Working hard for something we don't care about is called stress: Working hard for something we love is called passion.&quot;</em> <br>
+— Simon Sinek
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
