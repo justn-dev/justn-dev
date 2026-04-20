@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;The fear of death is more to be feared, than death itself.&quot;</em> <br>
+— Publilius Syrus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
