@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Every failure brings with it the seed of an equivalent success.&quot;</em> <br>
+— Napoleon Hill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
