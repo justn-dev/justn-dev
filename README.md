@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you.&quot;</em> <br>
-— Simon Sinek
+<em>&quot;Your only obligation in any lifetime is to be true to yourself.&quot;</em> <br>
+— Richard Bach
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
