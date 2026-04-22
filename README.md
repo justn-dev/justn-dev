@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you are going to achieve excellence in big things, you develop the habit in little matters.&quot;</em> <br>
-— Colin Powell
+<em>&quot;To arrive at the simplest truth requires years of contemplation.&quot;</em> <br>
+— Isaac Newton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
