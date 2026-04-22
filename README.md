@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing that results in human progress is achieved with unanimous consent.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;Amateurs sit and wait for inspiration, the rest of us just get up and got to work.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
