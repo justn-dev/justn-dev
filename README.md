@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is not meant to be easy my child, but take courage: it can be delightful.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Don't be afraid to give up the good to go for the great.&quot;</em> <br>
+— John D. Rockefeller
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
