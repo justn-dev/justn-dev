@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's the unknown we fear when we look upon death and darkness, nothing more.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;Insanity: doing the same thing over and over again and expecting different results.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
