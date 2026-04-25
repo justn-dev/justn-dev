@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The problem happens when we have multiple desires. When we have fuzzy desires. When we want to do ten different things and we're not clear about which is the one we care about.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;So we beat on, boats against the current, borne back ceaselessly into the past.&quot;</em> <br>
+— F. Scott Fitzgerald
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
