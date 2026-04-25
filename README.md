@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you.&quot;</em> <br>
-— T.S. Eliot
+<em>&quot;Words have no power to impress the mind without the exquisite horror of their reality.&quot;</em> <br>
+— Edgar Allan Poe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
