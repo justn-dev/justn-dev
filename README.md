@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If we are not able to smile, then the world will not have peace.&quot;</em> <br>
-— Thich Nhat Hanh
+<em>&quot;Without education, we are in a horrible and deadly danger of taking educated people seriously.&quot;</em> <br>
+— Gilbert Chesterton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
