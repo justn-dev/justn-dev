@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;So we beat on, boats against the current, borne back ceaselessly into the past.&quot;</em> <br>
-— F. Scott Fitzgerald
+<em>&quot;Most people dabble their way through life, never deciding to master anything in particular.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
