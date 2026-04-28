@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you love someone, you love the person as they are, and not as you'd like them to be.&quot;</em> <br>
-— Leo Tolstoy
+<em>&quot;They who have conquered doubt and fear have conquered failure.&quot;</em> <br>
+— James Allen
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
