@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life is what you make it. Always has been, always will be.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;Of all men's miseries the bitterest is this: to know so much and to have control over nothing. &quot;</em> <br>
+— Herodotus
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
