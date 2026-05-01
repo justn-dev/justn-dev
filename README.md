@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;Your greatest asset is your earning ability. Your greatest resource is your time.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
