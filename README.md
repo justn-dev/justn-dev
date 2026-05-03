@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A lot of people have gone further than they thought they could because someone else thought they could.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Every man desires to live long, but no man wishes to be old.&quot;</em> <br>
+— Jonathan Swift
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
