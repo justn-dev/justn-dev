@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success is not final, failure is not fatal: it is the courage to continue that counts.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;Do the difficult things while they are easy and do the great things while they are small.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
