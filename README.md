@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Absence makes the heart grow fonder.&quot;</em> <br>
-— Eleanor Roosevelt
+<em>&quot;A woman unsatisfied must have luxuries. But a woman who loves a man would sleep on a board.&quot;</em> <br>
+— D. H. Lawrence
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
