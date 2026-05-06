@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only time you run out of chances is when you stop taking them.&quot;</em> <br>
-— Unknown
+<em>&quot;Some of your greatest lessons come from your darkest moments.&quot;</em> <br>
+— Roger Lee
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
