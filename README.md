@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you care about someone enough, you'll always be there for them no matter what.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;What worries you, masters you.&quot;</em> <br>
+— John Locke
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
