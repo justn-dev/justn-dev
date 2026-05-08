@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability.&quot;</em> <br>
-— John Wooden
+<em>&quot;Until we can manage time, we can manage nothing else.&quot;</em> <br>
+— Peter Drucker
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
