@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To arrive at the simplest truth requires years of contemplation.&quot;</em> <br>
-— Isaac Newton
+<em>&quot;If someone betrays you once, it's their fault; if they betray you twice, it's your fault.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
