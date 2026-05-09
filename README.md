@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;To arrive at the simplest truth requires years of contemplation.&quot;</em> <br>
+— Isaac Newton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
