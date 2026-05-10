@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't let making a living prevent you from making a life.&quot;</em> <br>
-— John Wooden
+<em>&quot;When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head.&quot;</em> <br>
+— Stephen King
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
