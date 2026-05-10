@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only thing more frustrating than slanderers is those foolish enough to listen to them.&quot;</em> <br>
-— Criss Jami
+<em>&quot;Life belongs to the living, and he who lives must be prepared for changes.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
