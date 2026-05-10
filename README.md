@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Just living is not enough... one must have sunshine, freedom, and a little flower. &quot;</em> <br>
-— Hans Christian Andersen
+<em>&quot;The only people without problems are those in cemeteries.&quot;</em> <br>
+— Tony Robbins
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
