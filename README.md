@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life begins where fear ends.&quot;</em> <br>
-— Osho
+<em>&quot;Dreams are the royal road to the unconscious. &quot;</em> <br>
+— Sigmund Freud
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
