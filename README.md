@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It doesn't matter what you do, only how well you do it.&quot;</em> <br>
-— Dan Millman
+<em>&quot;The only lost cause is one we give up on before we enter the struggle.&quot;</em> <br>
+— Vaclav Havel
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
