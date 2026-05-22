@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The only way to make sense out of change is to plunge into it, move with it, and join the dance.&quot;</em> <br>
-— Alan Watts
+<em>&quot;The only way it gets better for you is when you get better. Better is not something you wish, it's something you become.&quot;</em> <br>
+— Jim Rohn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
