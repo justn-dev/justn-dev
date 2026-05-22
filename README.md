@@ -1,4 +1,4 @@
-### Good evening ☕
+### Happy weekend 🏝️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When we think about our strengths, we are strong. When we think about our weaknesses, we are weak.&quot;</em> <br>
-— Peter A. Cohen
+<em>&quot;Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves.&quot;</em> <br>
+— Adi Da Samraj
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
