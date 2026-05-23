@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;People who say it cannot be done should not interrupt those who are doing it.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;I am not what happened to me, I am what I choose to become.&quot;</em> <br>
+— Carl Jung
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
