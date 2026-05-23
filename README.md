@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life has more imagination than we carry in our dreams.&quot;</em> <br>
-— Christopher Columbus
+<em>&quot;Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
