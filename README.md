@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Not all of us can do great things. But we can do small things with great love.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;You may be one person in this world, but to one person you may mean the world.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
