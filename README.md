@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;He who cheats the earth will be cheated by the earth.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;There are three classes of people: those who see. Those who see when they are shown. Those who do not see.&quot;</em> <br>
+— Leonardo da Vinci
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
