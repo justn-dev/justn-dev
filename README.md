@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Never give up work. Work gives you meaning and purpose and life is empty without it.&quot;</em> <br>
-— Stephen Hawking
+<em>&quot;Perfection is not attainable, but if we chase perfection we can catch excellence.&quot;</em> <br>
+— Vince Lombardi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
