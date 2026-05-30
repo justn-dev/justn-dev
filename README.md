@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life comes at us in waves. We can't predict or control those waves, but we can learn to surf.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Concentrated power has always been the enemy of liberty.&quot;</em> <br>
+— Ronald Reagan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
