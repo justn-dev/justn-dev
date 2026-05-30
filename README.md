@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There is no path to Love. Love is the path.&quot;</em> <br>
-— Dan Millman
+<em>&quot;All human wisdom is contained in these two words - Wait and Hope&quot;</em> <br>
+— Alexandre Dumas
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
