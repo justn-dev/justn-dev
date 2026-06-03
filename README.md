@@ -1,4 +1,4 @@
-### Good night 😴
+### Good morning ☀️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.&quot;</em> <br>
-— George Washington
+<em>&quot;Change happens when the pain of holding on becomes greater than the fear of letting go.&quot;</em> <br>
+— Spencer Johnson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
