@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Excellence is not a skill. It is an attitude.&quot;</em> <br>
-— Ralph Marston
+<em>&quot;To some degree, you control your life by controlling your time.&quot;</em> <br>
+— Conrad Hilton
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
