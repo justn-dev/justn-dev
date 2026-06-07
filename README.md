@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Yesterday is gone. Tomorrow has not yet come. We have only today.&quot;</em> <br>
-— Mother Teresa
+<em>&quot;The more perfect a person is on the outside, the more demons they have on the inside.&quot;</em> <br>
+— Sigmund Freud
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
