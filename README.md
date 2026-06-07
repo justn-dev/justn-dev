@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't wait for extraordinary opportunities. Seize common occasions and make them great.&quot;</em> <br>
-— Orison Swett Marden
+<em>&quot;The less you talk about your shame, the more of it you have.&quot;</em> <br>
+— Mark Manson
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
