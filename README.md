@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It's not the size of the dog in the fight, it's the size of the fight in the dog.&quot;</em> <br>
-— Mark Twain
+<em>&quot;Unlike the stomach, the brain doesn't alert you when it's empty.&quot;</em> <br>
+— Arabic Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
