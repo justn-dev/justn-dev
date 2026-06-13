@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The less you respond to negative people, the more positive your life will become.&quot;</em> <br>
-— Paulo Coelho
+<em>&quot;He who wishes to be obeyed must know how to command.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
