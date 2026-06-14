@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear.&quot;</em> <br>
+— Jon Kabat-Zinn
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
