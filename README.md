@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good evening ☕
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;We take care of the future best by taking care of the present now.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
