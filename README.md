@@ -1,4 +1,4 @@
-### Good evening ☕
+### Happy weekend 🏝️
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A good salesman is like a good cook—he can create an appetite when the buyer isn't hungry.&quot;</em> <br>
-— George Lorimer
+<em>&quot;Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it.&quot;</em> <br>
+— Robert Frost
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
