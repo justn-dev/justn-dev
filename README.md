@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When I let go of what I am, I become what I might be.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;Identification with our mind causes thought to become compulsive.&quot;</em> <br>
+— Eckhart Tolle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
