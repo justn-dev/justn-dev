@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Do not look upon this world with fear and loathing. Bravely face whatever the gods offer.&quot;</em> <br>
-— Morihei Ueshiba
+<em>&quot;Genius, in truth, means little more than the faculty of perceiving in an unhabitual way.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
