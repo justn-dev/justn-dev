@@ -1,4 +1,4 @@
-### Good evening ☕
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't let your learning lead to knowledge. Let your learning lead to action.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Patience expands your options. If you insist on immediate gratification, your choices are severely limited.&quot;</em> <br>
+— Ralph Marston
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
