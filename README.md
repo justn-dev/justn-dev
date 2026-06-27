@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Catch, then, O catch the transient hour; Improve each moment as it flies!&quot;</em> <br>
-— St. Jerome
+<em>&quot;Hope and fear come from feeling that we lack something; they come from a sense of poverty.&quot;</em> <br>
+— Pema Chodron
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
