@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Failure will never overtake me if my determination to succeed is strong enough.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
