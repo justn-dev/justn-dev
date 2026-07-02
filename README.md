@@ -1,4 +1,4 @@
-### Good evening ☕
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Even when a friend does something you do not like, he continues to be your friend.&quot;</em> <br>
-— Genghis Khan
+<em>&quot;Becoming a great leader doesn't mean being perfect. it means living with your imperfections.&quot;</em> <br>
+— Lolly Daskal
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
