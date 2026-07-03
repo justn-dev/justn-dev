@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is better to point out your own mistakes than have somebody else do it.&quot;</em> <br>
-— Warren Buffett
+<em>&quot;Pain results from a judgment you have made about a thing. Remove the judgment and the pain disappears.&quot;</em> <br>
+— Neale Donald Walsch
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
