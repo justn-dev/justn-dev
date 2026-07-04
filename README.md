@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There will always be suffering. But we must not suffer over the suffering.&quot;</em> <br>
-— Alan Watts
+<em>&quot;Many a man has failed because he had his wishbone where his backbone should have been.&quot;</em> <br>
+— Ronald Reagan
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
