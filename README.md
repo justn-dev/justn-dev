@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The difference between treason and patriotism is only a matter of dates.&quot;</em> <br>
-— Alexandre Dumas
+<em>&quot;If you cannot understand something, then you have understood it incorrectly.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
