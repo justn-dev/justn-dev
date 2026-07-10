@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Truth is like most opinions - best unexpressed.&quot;</em> <br>
-— Kenneth Branagh
+<em>&quot;Do not stop thinking of life as an adventure.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
