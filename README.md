@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;There are two things a person should never be angry at, what they can help, and what they cannot.&quot;</em> <br>
-— Plato
+<em>&quot;You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give.&quot;</em> <br>
+— Eleanor Roosevelt
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
