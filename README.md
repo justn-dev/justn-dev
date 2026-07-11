@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;What people say, what people do, and what they say they do are entirely different things.&quot;</em> <br>
-— Margaret Mead
+<em>&quot;Everyone thinks of changing the world, but no one thinks of changing himself.&quot;</em> <br>
+— Leo Tolstoy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
