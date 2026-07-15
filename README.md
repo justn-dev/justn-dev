@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you believe you can, you can. If you believe you can't, then, well you can't.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.&quot;</em> <br>
+— Lao Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
