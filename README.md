@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A rational person can find peace by cultivating indifference to things outside of their control.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Our greatest fears lie in anticipation.&quot;</em> <br>
+— Honore de Balzac
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
