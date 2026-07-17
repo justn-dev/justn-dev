@@ -1,4 +1,4 @@
-### Good morning ☀️
+### Good afternoon 👋
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The first step toward getting somewhere is to decide that you are not going to stay where you are.&quot;</em> <br>
-— Unknown
+<em>&quot;Success and failure come and go, but don't let them define you. It's who you are that matters.&quot;</em> <br>
+— Kamal Ravikant
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
