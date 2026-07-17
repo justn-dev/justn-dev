@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Success and failure come and go, but don't let them define you. It's who you are that matters.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;For the things we have to learn before we can do them, we learn by doing them.&quot;</em> <br>
+— Aristotle
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
