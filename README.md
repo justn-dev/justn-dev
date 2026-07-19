@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It takes real work to grasp what is invisible to just about everyone else.&quot;</em> <br>
-— Ryan Holiday
+<em>&quot;Intuition is the ear of the soul.&quot;</em> <br>
+— Neale Donald Walsch
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
