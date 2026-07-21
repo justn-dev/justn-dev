@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When you've got nothing, you've got nothing to lose.&quot;</em> <br>
-— Bob Dylan
+<em>&quot;The most important battle is one to conquer yourself.&quot;</em> <br>
+— Yanni
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
