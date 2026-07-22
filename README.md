@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;No one can compete with you on being you. Most of life is a search for who and what needs you the most.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Imagination means nothing without doing.&quot;</em> <br>
+— Charlie Chaplin
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
