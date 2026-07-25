@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everyone you admire was once a beginner.&quot;</em> <br>
-— Jack Butcher
+<em>&quot;Do not save what is left after spending, but spend what is left after saving.&quot;</em> <br>
+— Warren Buffett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
