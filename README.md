@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything.&quot;</em> <br>
-— Paramahansa Yogananda
+<em>&quot;The important thing is not to stop questioning. Curiosity has its own reason for existing.&quot;</em> <br>
+— Albert Einstein
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
