@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be the silent watcher of your thoughts and behavior. You are beneath the thinker.&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;We learn to walk by falling down. If we never fell down, we would never walk.&quot;</em> <br>
+— Robert Kiyosaki
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
