@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Wealth consists not in having great possessions, but in having few wants.&quot;</em> <br>
-— Epictetus
+<em>&quot;Today you are you, that is truer than true. There is no one alive who is you-er than you.&quot;</em> <br>
+— Dr. Seuss
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
