@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Believe and you're halfway there.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;If the happiness and prosperity of other people depend on you, you have nothing to fear anymore.&quot;</em> <br>
+— Robert Greene
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
