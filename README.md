@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing will work unless you do.&quot;</em> <br>
-— Maya Angelou
+<em>&quot;What we desire makes us vulnerable.&quot;</em> <br>
+— Ryan Holiday
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
