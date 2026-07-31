@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;The most virtuous are those who content themselves with being virtuous without seeking to appear so.&quot;</em> <br>
+— Plato
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
