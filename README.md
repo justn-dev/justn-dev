@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't seek, don't avoid, don't expect. Take what comes and be happy.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;What you seek is seeking you.&quot;</em> <br>
+— Rumi
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
