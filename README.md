@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all.&quot;</em> <br>
-— Dale Carnegie
+<em>&quot;Longevity is a fleeting moment that lasts forever.&quot;</em> <br>
+— Vidal Sassoon
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
