@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;To know even one life has breathed easier because you have lived. This is to have succeeded.&quot;</em> <br>
-— Ralph Waldo Emerson
+<em>&quot;Appear weak when you are strong, and strong when you are weak.&quot;</em> <br>
+— Sun Tzu
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
