@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Growth comes at the point of resistance.&quot;</em> <br>
-— Josh Waitzkin
+<em>&quot;The universe doesn't allow perfection.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
