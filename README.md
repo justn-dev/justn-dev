@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Those who bring sunshine into the lives of others cannot keep it from themselves.&quot;</em> <br>
-— James Matthew Barrie
+<em>&quot;Success comes from knowing that you did your best to become the best that you are capable of becoming.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
