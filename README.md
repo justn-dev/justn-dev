@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Raise your words, not voice. It is rain that grows flowers, not thunder.&quot;</em> <br>
-— Rumi
+<em>&quot;The older you get, the better you get. Unless you're a banana.&quot;</em> <br>
+— Betty White
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
