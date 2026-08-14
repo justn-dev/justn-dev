@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;A strong team can take any crazy vision and turn it into reality.&quot;</em> <br>
-— John Carmack
+<em>&quot;The greatest mistake you can make in life is to be continually fearing you will make one.&quot;</em> <br>
+— Elbert Hubbard
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
