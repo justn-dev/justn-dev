@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't risk what is important to you, to get what is not important to you.&quot;</em> <br>
-— Warren Buffett
+<em>&quot;Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!&quot;</em> <br>
+— Sathya Sai Baba
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
