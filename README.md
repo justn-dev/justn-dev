@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;The greatest of all mistakes is to do nothing because you think you can only do a little.&quot;</em> <br>
-— Zig Ziglar
+<em>&quot;Don't risk what is important to you, to get what is not important to you.&quot;</em> <br>
+— Warren Buffett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
