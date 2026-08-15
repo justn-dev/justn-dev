@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Real learning comes about when the competitive spirit has ceased.&quot;</em> <br>
-— Jiddu Krishnamurti
+<em>&quot;What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from.&quot;</em> <br>
+— T.S. Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
