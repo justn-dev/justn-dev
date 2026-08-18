@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Confidence breeds beauty.&quot;</em> <br>
+— Estee Lauder
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
