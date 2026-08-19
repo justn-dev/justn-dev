@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whether you have a problem in your life or not depends upon your own attitude, your own understanding.&quot;</em> <br>
-— Shunryu Suzuki
+<em>&quot;The key to success is to focus our conscious mind on things we desire not things we fear.&quot;</em> <br>
+— Brian Tracy
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
