@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;When angry count to ten before you speak. If very angry, count to one hundred.&quot;</em> <br>
-— Thomas Jefferson
+<em>&quot;Never argue with ignorance. It only leads to frustration.&quot;</em> <br>
+— Unknown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
