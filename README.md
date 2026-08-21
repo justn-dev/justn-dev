@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't be afraid that you do not know something. Be afraid of not learning about it.&quot;</em> <br>
-— Zen Proverb
+<em>&quot;Never feel shame for trying and failing, for he who has never failed is he who has never tried.&quot;</em> <br>
+— Og Mandino
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
