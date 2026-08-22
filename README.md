@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;It is better to point out your own mistakes than have somebody else do it.&quot;</em> <br>
-— Warren Buffett
+<em>&quot;Shoot for the moon, because even if you miss, you'll land among the stars.&quot;</em> <br>
+— Les Brown
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
