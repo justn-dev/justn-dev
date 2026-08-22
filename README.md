@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Identify your problems, but give your power and energy to solutions.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work.&quot;</em> <br>
+— Oprah Winfrey
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
