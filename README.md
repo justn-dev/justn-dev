@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;The smallest of actions is always better than the noblest of intentions.&quot;</em> <br>
+— Robin Sharma
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
