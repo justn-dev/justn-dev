@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Everyone must choose one of two pains: The pain of discipline or the pain of regret.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality.&quot;</em> <br>
+— Earl Nightingale
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
