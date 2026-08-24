@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today.&quot;</em> <br>
-— Thich Nhat Hanh
+<em>&quot;The truth is not for all men, but for those who seek it.&quot;</em> <br>
+— Ayn Rand
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
