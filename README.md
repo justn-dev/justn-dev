@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have?&quot;</em> <br>
-— Eckhart Tolle
+<em>&quot;No one returns from a long journey the same person they were before.&quot;</em> <br>
+— Zen Proverb
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
