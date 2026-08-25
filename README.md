@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold.&quot;</em> <br>
-— Chinese Proverb
+<em>&quot;Human beings can alter their lives by altering their attitudes of mind.&quot;</em> <br>
+— William James
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
