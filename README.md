@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Absorb what is useful, discard what is not, add what is uniquely your own.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;Success is never final, failure is never fatal. It's courage that counts.&quot;</em> <br>
+— John Wooden
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
