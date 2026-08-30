@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Life doesn't get easier or more forgiving, we get stronger and more resilient.&quot;</em> <br>
-— Steve Maraboli
+<em>&quot;No one has ever become poor by giving.&quot;</em> <br>
+— Anne Frank
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
