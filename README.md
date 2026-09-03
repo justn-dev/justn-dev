@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If your happiness depends on what somebody else does, I guess you do have a problem.&quot;</em> <br>
-— Richard Bach
+<em>&quot;Invest in as much of yourself as you can, you are your own biggest asset by far.&quot;</em> <br>
+— Warren Buffett
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
