@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;I am not the outcome. I am never the result. I am only the effort.&quot;</em> <br>
-— Kamal Ravikant
+<em>&quot;However difficult life may seem, there is always something you can do and succeed at.&quot;</em> <br>
+— Stephen Hawking
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
