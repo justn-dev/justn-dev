@@ -1,4 +1,4 @@
-### Good afternoon 👋
+### Good evening ☕
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Zen insists that the whole trouble is just our failure to realize that there is no problem.&quot;</em> <br>
-— Bruce Lee
+<em>&quot;The power of man has grown in every sphere, except over himself.&quot;</em> <br>
+— Winston Churchill
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
