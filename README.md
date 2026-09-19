@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.&quot;</em> <br>
-— Dr. Seuss
+<em>&quot;Life is really simple, but men insist on making it complicated.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
