@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Don't seek, don't search, don't ask, don't knock, don't demand - relax.&quot;</em> <br>
-— Osho
+<em>&quot;The first principle of success is desire.&quot;</em> <br>
+— Robert Collier
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
