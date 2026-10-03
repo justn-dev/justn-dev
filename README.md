@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Whatever you do in life, surround yourself with smart people who'll argue with you.&quot;</em> <br>
-— John Wooden
+<em>&quot;As long as a human being worries about when he will die, and what he has that is his, all of his works are zero.&quot;</em> <br>
+— Kabir
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
