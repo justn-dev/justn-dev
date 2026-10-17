@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;Doubt is an uncomfortable condition, but certainty is a ridiculous one.&quot;</em> <br>
-— Voltaire
+<em>&quot;If you chase two rabbits, you catch none.&quot;</em> <br>
+— Confucius
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
