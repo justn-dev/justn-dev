@@ -1,4 +1,4 @@
-### Happy weekend 🏝️
+### Good night 😴
 <h2>I'm N, a Software Engineer. <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
 
 ## <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif?1588315024" width="30" /> SKILL
@@ -26,7 +26,7 @@
 ## <img src="https://i.imgur.com/g4uAchW.gif" width="30" /> ABOUT ME
 💬 Ask me anything: (xaytrong2002@gmail.com)
 ## Quote of the day:
-<em>&quot;If you only knew the magnificence of the 3, 6, and 9, then you would have a key to the universe.&quot;</em> <br>
-— Nikola Tesla
+<em>&quot;What do we live for, if it is not to make life less difficult for each other?&quot;</em> <br>
+— George Eliot
 
 ⚡ Fun fact: <em><strong>No pain, no gain</strong></em>
